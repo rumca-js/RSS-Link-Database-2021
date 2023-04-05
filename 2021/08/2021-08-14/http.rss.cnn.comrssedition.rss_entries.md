@@ -1,0 +1,177 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## In the largest Afghan enclave in the US, frustration, heartbreak and 'a sense of mourning'
+ - [https://www.cnn.com/2021/08/14/us/afghan-american-community-taliban-advance/index.html](https://www.cnn.com/2021/08/14/us/afghan-american-community-taliban-advance/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 23:27:58+00:00
+
+Mizgon Darby was an 18-year-old college freshman when she started a journal 20 years ago giving voice to the growing numbers of Afghans living in the United States.
+
+## Former SNL cast member Horatio Sanz has been accused of grooming and sexually assaulting a minor
+ - [https://www.cnn.com/2021/08/14/us/snl-horatio-sanz-sexual-assault-grooming-minor-trnd/index.html](https://www.cnn.com/2021/08/14/us/snl-horatio-sanz-sexual-assault-grooming-minor-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 23:15:34+00:00
+
+Comedian and former "Saturday Night Live" cast member Horatio Sanz is accused of grooming and sexually assaulting a 17-year-old in 2002, according to a lawsuit filed in New York on Thursday.
+
+## A South Carolina man won the lottery, then did it again 11 days later
+ - [https://www.cnn.com/2021/08/14/us/south-carolina-man-wins-lottery-twice-trnd/index.html](https://www.cnn.com/2021/08/14/us/south-carolina-man-wins-lottery-twice-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 22:29:38+00:00
+
+A lucky South Carolina man is claiming his second lottery prize in just as many weeks.
+
+## 'Live now. Die later': Acosta responds to Marjorie Taylor Greene's mortality rhetoric
+ - [https://www.cnn.com/videos/politics/2021/08/14/coronavirus-vaccine-sports-politics-acosta-sot-vpx-nr.cnn](https://www.cnn.com/videos/politics/2021/08/14/coronavirus-vaccine-sports-politics-acosta-sot-vpx-nr.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 21:48:54+00:00
+
+CNN's Jim Acosta takes a look at the sports world's response to the coronavirus vaccine, with big name athletes making their stances known.
+
+## Russian plane fighting wildfires crashes in Turkey, killing all 8 crew members on board
+ - [https://www.cnn.com/2021/08/14/europe/russian-firefighting-plane-crash-turkey-intl/index.html](https://www.cnn.com/2021/08/14/europe/russian-firefighting-plane-crash-turkey-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 19:44:55+00:00
+
+A Russian aircraft deployed to Turkey to fight wildfires crashed on Saturday, killing all eight people on board, officials said.
+
+## BBC Russia correspondent calls her imminent expulsion 'shocking' and says she can never go back
+ - [https://www.cnn.com/2021/08/14/europe/bbc-reporter-sarah-rainsford-russia-visa-intl/index.html](https://www.cnn.com/2021/08/14/europe/bbc-reporter-sarah-rainsford-russia-visa-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 19:36:22+00:00
+
+A BBC journalist working in Moscow said Saturday that she felt shocked she was being expelled from Russia and said she had been told she could never return to the country, in what her employer, the UK's public broadcaster, described as a "direct assault on media freedom."
+
+## Rwanda President Paul Kagame says 'we must not excuse or accept mediocrity' after Arsenal beaten by Brentford
+ - [https://www.cnn.com/2021/08/14/football/arsenal-brentford-rwanda-premier-league-spt-intl/index.html](https://www.cnn.com/2021/08/14/football/arsenal-brentford-rwanda-premier-league-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 19:31:45+00:00
+
+The reviews are in for Arsenal's performance against Brentford in the English Premier League's opening match on Friday and they make for grim reading if you're a Gunners fan.
+
+## US has one of the highest rates of new Covid cases
+ - [https://www.cnn.com/2021/08/14/health/us-coronavirus-saturday/index.html](https://www.cnn.com/2021/08/14/health/us-coronavirus-saturday/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 18:26:43+00:00
+
+• Landlords aim to block Biden's new eviction moratorium
+
+## Bergen: Afghanistan an 'unforced error' blowing up on Biden's watch
+ - [https://www.cnn.com/videos/world/2021/08/14/peter-bergen-afghanistan-biden-unforced-error-smerconish-vpx-sot.cnn](https://www.cnn.com/videos/world/2021/08/14/peter-bergen-afghanistan-biden-unforced-error-smerconish-vpx-sot.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 17:31:24+00:00
+
+CNN's Peter Bergen says that the collapse of the Afghan army against the Taliban was an "unforced error" by the Biden administration and predicts that President Biden will have to send a military presence back into Afghanistan.
+
+## Elon Musk: Zero pay but tens of billions in stock options in 2020
+ - [https://www.cnn.com/2021/08/14/business/elon-musk-pay/index.html](https://www.cnn.com/2021/08/14/business/elon-musk-pay/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 16:17:31+00:00
+
+Tesla CEO Elon Musk got $0 in pay in 2020, according to a company filing, but he did receive stock options during the year that are now worth $22 billion.
+
+## Biden stares down a pivotal moment in his presidency
+ - [https://www.cnn.com/2021/08/14/politics/biden-august-crises-afghanistan-covid-inflation-border/index.html](https://www.cnn.com/2021/08/14/politics/biden-august-crises-afghanistan-covid-inflation-border/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 16:16:43+00:00
+
+President Joe Biden is facing multiple August crises with Afghanistan on the verge of collapse, Covid-19 patients overwhelming hospitals in some states, persistent inflation concerns, an uncertain path forward for his sweeping infrastructure agenda and surging attempted border crossings.
+
+## Man who shot dead 5 people in English city of Plymouth made misogynist remarks
+ - [https://www.cnn.com/2021/08/14/uk/plymouth-shooting-incel-jake-davison-profile-intl/index.html](https://www.cnn.com/2021/08/14/uk/plymouth-shooting-incel-jake-davison-profile-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 15:32:16+00:00
+
+Jake Davison, the 22-year-old man who shot dead five people in the English city of Plymouth on Thursday, made repeated misogynist remarks on social media that echoed the ideology of "incel," a movement of men who often claim they feel unfairly denied sex by women or girls.
+
+## Want to live on Mars? This is what it might be like
+ - [https://www.cnn.com/2021/08/14/world/living-on-mars-science-newsletter-wt-scn/index.html](https://www.cnn.com/2021/08/14/world/living-on-mars-science-newsletter-wt-scn/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 15:04:57+00:00
+
+
+
+## Manchester United signs Raphaël Varane; thumps Leeds United as Bruno Fernandes scores hat-trick
+ - [https://www.cnn.com/2021/08/14/football/manchester-united-leeds-united-raphal-varane-bruno-fernandes-spt-intl/index.html](https://www.cnn.com/2021/08/14/football/manchester-united-leeds-united-raphal-varane-bruno-fernandes-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 14:11:43+00:00
+
+Manchester United paraded new signing Raphaël Varane before its match against Leeds United at Old Trafford on Saturday and then treated the French international to an impressive win in its first match of the new Premier League season.
+
+## A coyote attacked a child in Massachusetts
+ - [https://www.cnn.com/2021/08/14/us/coyote-attack-child-cape-cod-national-seashore-trnd/index.html](https://www.cnn.com/2021/08/14/us/coyote-attack-child-cape-cod-national-seashore-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 14:01:01+00:00
+
+A coyote attacked a small child on a Massachusetts beach, prompting fears of a rabies infection, according to the National Park Service.
+
+## Cash is disappearing. Here's what that means for tips
+ - [https://www.cnn.com/2021/08/14/success/cashless-tipping-apps/index.html](https://www.cnn.com/2021/08/14/success/cashless-tipping-apps/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 13:06:03+00:00
+
+Gone are the days of running to the ATM in order to get cash to tip your server or hair stylist. If cash was going out of style before the pandemic, consider its reputation ruined by infection concerns that have pushed consumers toward cashless alternatives — especially when it comes to tipping.
+
+## She asked CNN where her recycling goes. See what we discovered
+ - [https://www.cnn.com/videos/opinions/2021/08/13/how-much-recycling-gets-recycled-sutter-me-orig.cnn](https://www.cnn.com/videos/opinions/2021/08/13/how-much-recycling-gets-recycled-sutter-me-orig.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 12:41:51+00:00
+
+Lilly Geisler goes to a lot of trouble to recycle. So she left CNN a voicemail asking: How much of my recycling actually gets recycled? John Sutter travels to Muncie, Indiana, to find out. See more from our "Let's Talk About the Climate Apocalypse" series.
+
+## The most political garden in America is still sowing controversy one year later
+ - [https://www.cnn.com/2021/08/14/politics/melania-trump-rose-garden/index.html](https://www.cnn.com/2021/08/14/politics/melania-trump-rose-garden/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 12:41:07+00:00
+
+Since leaving Washington last January, there have been only a handful of things that have drawn former first lady Melania Trump out of her social media silence: holidays, the anniversary of Be Best, thanks for birthday wishes.
+
+## Why more women are deciding not to have kids
+ - [https://www.cnn.com/2021/08/14/us/childfree-women-birth-rate-decline-trnd/index.html](https://www.cnn.com/2021/08/14/us/childfree-women-birth-rate-decline-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 10:00:48+00:00
+
+Dyanna Volek was never someone who dreamed of becoming a mother.
+
+## Qatar's Hamad International: World's most luxurious airport?
+ - [https://www.cnn.com/travel/article/hamad-international-airport-qatar/index.html](https://www.cnn.com/travel/article/hamad-international-airport-qatar/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 08:33:42+00:00
+
+Standard advice says it's best to get to the airport two hours ahead of departure time. Anyone flying via Qatar's Hamad International might want to double or even triple that.
+
+## Travel news this week: Canada and New Zealand's reopening plans
+ - [https://www.cnn.com/travel/article/pandemic-travel-news-dolphins-lisbon-new-zealand/index.html](https://www.cnn.com/travel/article/pandemic-travel-news-dolphins-lisbon-new-zealand/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 08:28:28+00:00
+
+A new airport has been named the very best in the world. New Zealand says it will start to reopen its borders next year. And dolphins have returned to Lisbon waters.
+
+## Military personnel deployed to enforce Sydney Covid restrictions as state locks down
+ - [https://www.cnn.com/2021/08/14/australia/sydney-covid-restrictions-military-intl-hnk/index.html](https://www.cnn.com/2021/08/14/australia/sydney-covid-restrictions-military-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 05:40:11+00:00
+
+Additional Australian military personnel will be deployed to enforce tighter Covid-19 restrictions in the greater Sydney area next week as the country continues to battle the highly infectious Delta variant, authorities announced Saturday.
+
+## Host and judges pay tribute to 'America's Got Talent' contestant who lost battle to cancer
+ - [https://www.cnn.com/videos/business/2021/08/14/nightbirde-agt-talent-simon-cowell-tearful-orig-jk-ah.cnn](https://www.cnn.com/videos/business/2021/08/14/nightbirde-agt-talent-simon-cowell-tearful-orig-jk-ah.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 01:01:54+00:00
+
+Jane Marczewski, known by her stage name Nightbirde, stunned judges and got a golden buzzer on "America's Got Talent."
+
+## Indonesia has thousands of empty hospital beds. So why are Covid-19 patients dying at home?
+ - [https://www.cnn.com/2021/08/13/asia/indonesia-volunteer-undertakers-intl-dst-hnk/index.html](https://www.cnn.com/2021/08/13/asia/indonesia-volunteer-undertakers-intl-dst-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 00:34:58+00:00
+
+Taufiq Hidayat enters the homes of the dead to claim bodies no one will touch.
+
+## This man had to choose which family member was given a hospital bed
+ - [https://www.cnn.com/videos/world/2021/08/12/indonesia-covid-volunteer-hancocks-pkg-intl-hnk-vpx.cnn](https://www.cnn.com/videos/world/2021/08/12/indonesia-covid-volunteer-hancocks-pkg-intl-hnk-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-08-14 00:30:21+00:00
+
+Indonesia's deadly second wave of Covid-19 has overwhelmed hospitals and end-of-life services. Some volunteer undertakers are stepping in to perform the last rites for the dead. CNN's Paula Hancocks reports.
+

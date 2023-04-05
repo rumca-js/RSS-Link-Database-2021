@@ -1,0 +1,352 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## White people traveled to a hard hit Latino neighborhood in New York and took many of the Covid-19 vaccine appointments
+ - [https://www.cnn.com/2021/01/30/us/new-york-vaccine-disparities/index.html](https://www.cnn.com/2021/01/30/us/new-york-vaccine-disparities/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 23:34:46+00:00
+
+A Covid-19 vaccination site in a Latino neighborhood in New York City hard hit by the pandemic saw an overwhelming number of White people from outside the community show up to get the shot this month, city leaders say, laying bare a national disparity that shows people of color are being vaccinated at dramatically lower rates.
+
+## This airport is selling Covid-19 tests in vending machines
+ - [https://www.cnn.com/travel/article/oakland-airport-covid-test-vending-trnd/index.html](https://www.cnn.com/travel/article/oakland-airport-covid-test-vending-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 21:45:17+00:00
+
+Travelers flying through Oakland International Airport can pick up a Covid-19 test at newly installed vending machines.
+
+## Confused about this GameStop saga? Here are the 5 things you need to know
+ - [https://www.cnn.com/2021/01/30/business/gamestop-reddit-rebellion-explained/index.html](https://www.cnn.com/2021/01/30/business/gamestop-reddit-rebellion-explained/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 21:44:12+00:00
+
+There was a lot to unpack in the deluge of news this week about GameStop, the stock market, Reddit groups, trading apps and hedge funds. If it all seemed like too much, we can't blame you for tuning out.
+
+## Singer Kelly Rowland announces birth of her second child
+ - [https://www.cnn.com/2021/01/30/entertainment/kelly-rowland-baby-boy-trnd/index.html](https://www.cnn.com/2021/01/30/entertainment/kelly-rowland-baby-boy-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 21:36:52+00:00
+
+Singer Kelly Rowland has some good news to cheer us up -- she recently had a second baby, a boy.
+
+## Plan to vaccinate Guantanamo Bay detainees against Covid-19 has been paused
+ - [https://www.cnn.com/2021/01/30/politics/guantanamo-bay-detainees-covid-19-vaccine-paused/index.html](https://www.cnn.com/2021/01/30/politics/guantanamo-bay-detainees-covid-19-vaccine-paused/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 21:14:46+00:00
+
+An earlier plan to give Guantanamo Bay detainees the Covid-19 vaccine has been paused as of Saturday, according to a US Pentagon official.
+
+## Sheriff's deputy accused of staging ambush
+ - [https://www.cnn.com/2021/01/29/us/california-deputy-staged-shooting/index.html](https://www.cnn.com/2021/01/29/us/california-deputy-staged-shooting/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 20:56:49+00:00
+
+A California sheriff's deputy was arrested and charged on Friday with felony vandalism and falsely reporting a crime for allegedly staging a "shocking ambush," according to the Santa Clara County district attorney's office.
+
+## Canadian man sets his fourth world record for eating hot peppers
+ - [https://www.cnn.com/2021/01/30/us/record-for-fastest-time-eating-three-carolina-reaper-peppers-trnd/index.html](https://www.cnn.com/2021/01/30/us/record-for-fastest-time-eating-three-carolina-reaper-peppers-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 20:43:10+00:00
+
+How fast could you eat a hot pepper? What about three of the world's hottest peppers?
+
+## Taylor Swift gets the sea shanty treatment
+ - [https://www.cnn.com/videos/us/2021/01/30/taylor-swift-sea-shanty-us-navy-band-orig-kj.cnn](https://www.cnn.com/videos/us/2021/01/30/taylor-swift-sea-shanty-us-navy-band-orig-kj.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 19:47:13+00:00
+
+The U.S. Navy Band reimagined Taylor Swift's "We Are Never Ever Getting Back Together" in the style of maritime folk songs called sea shanties, a trend that's caught fire across the internet.
+
+## Five men arrested after asylum center set ablaze in UK
+ - [https://www.cnn.com/2021/01/30/uk/uk-asylum-center-blaze-arrests-gbr-intl/index.html](https://www.cnn.com/2021/01/30/uk/uk-asylum-center-blaze-arrests-gbr-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 18:48:06+00:00
+
+Five men have been arrested in connection with a fire "believed to have been started deliberately" at a UK asylum facility on Friday.
+
+## Austrian man leaves fortune to French village that saved his family from Nazis
+ - [https://www.cnn.com/2021/01/30/europe/fortune-french-village-nazi-intl/index.html](https://www.cnn.com/2021/01/30/europe/fortune-french-village-nazi-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 17:34:57+00:00
+
+An Austrian man who died in December has left an undisclosed fortune to the French village of Le Chambon-sur-Lignon to thank residents for hiding his family from Nazis during World War II.
+
+## Russian activist Navalny's foundation calls on Biden to sanction Putin's closest allies
+ - [https://www.cnn.com/2021/01/30/europe/russia-navalny-foundation-biden-letter-intl/index.html](https://www.cnn.com/2021/01/30/europe/russia-navalny-foundation-biden-letter-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 17:21:12+00:00
+
+The foundation set up by Russian opposition leader Alexey Navalny has called on US President Joe Biden to impose sanctions on at least eight high profile Russian figures it says are close to Russian President Vladimir Putin.
+
+## Sophie, Grammy-nominated artist, dies aged 34
+ - [https://www.cnn.com/2021/01/30/entertainment/sophie-death-gbr-intl/index.html](https://www.cnn.com/2021/01/30/entertainment/sophie-death-gbr-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 17:07:31+00:00
+
+Grammy-nominated experimental pop artist and producer Sophie Xeon -- publicly known as Sophie -- died in a "terrible accident" on Saturday morning aged 34, according to a statement from her record label Transgressive.
+
+## This Missouri dad makes $35k. Now his GameStop shares are worth over a million
+ - [https://www.cnn.com/videos/business/2021/01/29/trader-millionaire-gamestop-stock-orig.cnn](https://www.cnn.com/videos/business/2021/01/29/trader-millionaire-gamestop-stock-orig.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 16:57:29+00:00
+
+AJ Vanover put about $4,500 into a risky bet on GameStop and followed the saga on the subreddit Wallstreetbets. Now, this Missouri dad who earns $35,000 a year is a millionaire on paper. CNN's Jon Sarlin asks him why he isn't cashing out.
+
+## Chelsea left 'disgusted' by online racism directed at Reece James and calls for more action
+ - [https://www.cnn.com/2021/01/30/football/chelsea-reece-james-racism-social-media-spt-intl/index.html](https://www.cnn.com/2021/01/30/football/chelsea-reece-james-racism-social-media-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 16:53:07+00:00
+
+Chelsea has called on social media platforms to do more to tackle racism online after defender Reece James was subject to abuse on Friday.
+
+## Smerconish: Who elected Marjorie Taylor Greene?
+ - [https://www.cnn.com/videos/tv/2021/01/30/smerconish-who-elected-marjorie-taylor-greene.cnn](https://www.cnn.com/videos/tv/2021/01/30/smerconish-who-elected-marjorie-taylor-greene.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 15:12:16+00:00
+
+CNN's Michael Smerconish says the behavior of Republican Rep. Marjorie Taylor Greene before and after getting elected is a greatest hits reel of truly deplorable conduct and examines how the lawmaker was elected.
+
+## He warned about right-wing extremism in 2009. Hear his analysis now
+ - [https://www.cnn.com/videos/tv/2021/01/30/domestic-terror-disavowed-2009-dhs-warning-now-rings-true.cnn](https://www.cnn.com/videos/tv/2021/01/30/domestic-terror-disavowed-2009-dhs-warning-now-rings-true.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 15:00:48+00:00
+
+Former Department of Homeland Security analyst Daryl Johnson was criticized in 2009 when he warned about domestic extremist violence and had his report retracted. Johnson says he never envisioned that right-wing radicalization would lead to the recent storming of the US Capitol.
+
+## Family of a Black deputy turned away from Whites-only cemetery
+ - [https://www.cnn.com/videos/us/2021/01/30/louisiana-cemetery-whites-only-pkg-vpx.kplc](https://www.cnn.com/videos/us/2021/01/30/louisiana-cemetery-whites-only-pkg-vpx.kplc)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 14:34:14+00:00
+
+Oaklin Springs Cemetery in Louisiana told the family of a Black sheriff's deputy he couldn't be buried there because it was only for White people. CNN affiliate KPLC has the story.
+
+## 'Warrior' police training is being offered across the US
+ - [https://www.cnn.com/videos/us/2021/01/22/warrior-training-police-killology-orig-mg.cnn](https://www.cnn.com/videos/us/2021/01/22/warrior-training-police-killology-orig-mg.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 14:11:56+00:00
+
+Police departments across the country are being trained in an aggressive, ready-to-kill approach to police training. How has this "warrior-style" of training contributed to the current state of policing in America?
+
+## What's new in fast food: Chicken sandwiches and cauliflower rice
+ - [https://www.cnn.com/2021/01/30/business/new-fast-food-january-2021/index.html](https://www.cnn.com/2021/01/30/business/new-fast-food-january-2021/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 14:10:48+00:00
+
+If you felt like a new fried chicken sandwich debuted every day in January, you're not far off.
+
+## Reproductive rights groups: 'You can't just remove the damage of the last four years'
+ - [https://www.cnn.com/2021/01/30/world/biden-abortion-mexico-city-policy-intl/index.html](https://www.cnn.com/2021/01/30/world/biden-abortion-mexico-city-policy-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 13:31:07+00:00
+
+
+
+## Over 90 million Americans to be impacted by winter storm
+ - [https://www.cnn.com/videos/weather/2021/01/30/exp-daily-weather-forecast-noreaster-snowstorm-atmospheric-river.cnn](https://www.cnn.com/videos/weather/2021/01/30/exp-daily-weather-forecast-noreaster-snowstorm-atmospheric-river.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 13:10:39+00:00
+
+A major winter storm will unfold this weekend across the Midwest and Mid-Atlantic. CNN Meteorologist Derek Van Dam has the details.
+
+## Beautiful Italian town sells ready-to-occupy homes at bargain prices
+ - [https://www.cnn.com/travel/article/biccari-italy-cheap-houses/index.html](https://www.cnn.com/travel/article/biccari-italy-cheap-houses/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 12:42:46+00:00
+
+If you've been tempted to pick up one of the dilapidated houses offered for sale in Italy for little more than $1 but had second thoughts about the hassle of renovating it, one town has an offer that might just tempt you.
+
+## This Biden clip is being used against him. Here are the facts
+ - [https://www.cnn.com/videos/politics/2021/01/29/fact-check-joe-biden-executive-orders-orig-me.cnn](https://www.cnn.com/videos/politics/2021/01/29/fact-check-joe-biden-executive-orders-orig-me.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 11:45:15+00:00
+
+Senate Minority Leader Mitch McConnell and other Republicans have taken this Biden statement out of context to push back against the President's executive actions.
+
+## A fight between the EU and UK reveals the ugly truth about vaccine nationalism
+ - [https://www.cnn.com/2021/01/30/europe/uk-eu-astrazeneca-vaccine-nationalism-gbr-intl/index.html](https://www.cnn.com/2021/01/30/europe/uk-eu-astrazeneca-vaccine-nationalism-gbr-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 11:36:36+00:00
+
+The UN General Assembly in September last year was a pivotal moment in the pandemic, when leaders began to show some unity as global deaths approached a million. They had learned hard lessons from the damage that hoarding protective equipment had done, they said. When a vaccine was developed, the world's most vulnerable would be first in line, they claimed.
+
+## Hear from Nigerian teen freed after overturned blasphemy sentence
+ - [https://www.cnn.com/videos/world/2021/01/29/nigeria-omar-farouq-teen-freed-blasphemy-busari-intl-ldn-vpx.cnn](https://www.cnn.com/videos/world/2021/01/29/nigeria-omar-farouq-teen-freed-blasphemy-busari-intl-ldn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 11:27:48+00:00
+
+CNN's Stephanie Busari speaks with Omar Farouq, the Nigerian teen who was freed after his 10-year prison sentence for blasphemy was overturned. Farouq was convicted in a Sharia court in Kano State in northwest Nigeria after he was accused of using foul language toward Allah in an argument with a friend.
+
+## Sofia Kenin: 'The atmosphere is going to be loud' at the Australian Open
+ - [https://www.cnn.com/2021/01/30/tennis/sofia-kenin-australian-open-title-quarantine-spt-intl/index.html](https://www.cnn.com/2021/01/30/tennis/sofia-kenin-australian-open-title-quarantine-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 10:52:26+00:00
+
+Preparation for this year's Australian Open has been unlike anything these professional tennis players have previously experienced.
+
+## Here's where your 'free' online returns actually end up
+ - [https://www.cnn.com/videos/business/2021/01/29/free-online-returns-liquidation-industry-explainer-orig.cnn-business](https://www.cnn.com/videos/business/2021/01/29/free-online-returns-liquidation-industry-explainer-orig.cnn-business)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 09:10:22+00:00
+
+Many people think the online purchases they return for free end up being sold to another customer. But the truth is much more complicated. From landfills to liquidation warehouses, here's where your returns really end up.
+
+## Johnson & Johnson's Covid-19 vaccine: What the data means, how it works and why it matters
+ - [https://www.cnn.com/collections/intl-vaccines-0129/](https://www.cnn.com/collections/intl-vaccines-0129/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 08:21:54+00:00
+
+
+
+## Freddy the Great Dane, the tallest dog in the world, has died
+ - [https://www.cnn.com/2021/01/30/uk/freddy-tallest-dog-died-great-dane-trnd/index.html](https://www.cnn.com/2021/01/30/uk/freddy-tallest-dog-died-great-dane-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 07:59:34+00:00
+
+Freddy, a Great Dane celebrated by Guinness World Records as the tallest dog in the world, has died.
+
+## Sleep on the job? Company offers $3,000 for 'Sleeping Beauty' to test out mattresses
+ - [https://www.cnn.com/2021/01/30/us/sleep-on-the-job-trnd/index.html](https://www.cnn.com/2021/01/30/us/sleep-on-the-job-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 06:03:36+00:00
+
+What if you could get paid for sleeping? Well, guess what -- you can: $3,000 to be exact.
+
+## With new urgency, Biden makes his case to the American people for Covid-19 relief
+ - [https://www.cnn.com/2021/01/30/politics/biden-covid-19-relief-urgency/index.html](https://www.cnn.com/2021/01/30/politics/biden-covid-19-relief-urgency/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 05:39:23+00:00
+
+President Joe Biden came to Washington with big dreams of bipartisanship, but the practicalities are now setting in.
+
+## Babies get Covid-19 antibodies from mothers while in the womb, study finds
+ - [https://www.cnn.com/2021/01/30/health/pregnancy-covid-antibodies-wellness/index.html](https://www.cnn.com/2021/01/30/health/pregnancy-covid-antibodies-wellness/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 05:13:23+00:00
+
+Antibodies that protect against the coronavirus often get transferred from mother to infant during pregnancy -- a finding that indicates a mother passes along at least some protection to her child, researchers reported Friday.
+
+## Healthcare workers stranded in snow give out vaccine doses set to expire
+ - [https://www.cnn.com/videos/health/2021/01/30/oregon-healthcare-workers-stranded-snowstorm-coronavirus-vaccine-ctn-vpx.cnn](https://www.cnn.com/videos/health/2021/01/30/oregon-healthcare-workers-stranded-snowstorm-coronavirus-vaccine-ctn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 05:06:17+00:00
+
+A team of healthcare workers in Oregon stuck in a snowstorm carrying doses of the Covid-19 vaccine that were set to expire set up an impromptu clinic knocking on car windows and vaccinating stranded drivers with their remaining supply.
+
+## George W. Bush to thank Dick Cheney, father of Liz Cheney, 'for his daughter's service'
+ - [https://www.cnn.com/2021/01/29/politics/george-w-bush-thank-dick-cheney-liz-cheney/index.html](https://www.cnn.com/2021/01/29/politics/george-w-bush-thank-dick-cheney-liz-cheney/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 03:59:55+00:00
+
+Former President George W. Bush is making it clear that he supports Rep. Liz Cheney of Wyoming, the No. 3 Republican in the House, who voted to impeach then-President Donald Trump.
+
+## Senate Republicans say Trump should be held accountable for riot -- but not by them
+ - [https://www.cnn.com/collections/us-politics-intl-3001/](https://www.cnn.com/collections/us-politics-intl-3001/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 03:09:59+00:00
+
+
+
+## Two members of the Proud Boys face conspiracy charges in US Capitol riot
+ - [https://www.cnn.com/2021/01/29/politics/proud-boys-conspiracy-charges-capitol-riot/index.html](https://www.cnn.com/2021/01/29/politics/proud-boys-conspiracy-charges-capitol-riot/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 03:09:12+00:00
+
+The Justice Department on Friday announced conspiracy charges against two members of the far-right Proud Boys who allegedly participated in the insurrection at the US Capitol on January 6.
+
+## Rep. Marjorie Taylor Greene in new video: Freedom is earned with price of blood
+ - [https://www.cnn.com/videos/politics/2021/01/30/marjorie-taylor-greene-republicans-burnett-sot-vpx-ebof.cnn](https://www.cnn.com/videos/politics/2021/01/30/marjorie-taylor-greene-republicans-burnett-sot-vpx-ebof.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 02:45:20+00:00
+
+CNN's Erin Burnett calls out Republicans for their support of Rep. Marjorie Taylor Greene (R-GA) despite past incendiary comments.
+
+## Mayor who called QAnon a 'truth movement' under scrutiny by residents
+ - [https://www.cnn.com/videos/us/2021/01/30/mayor-sequim-washington-qanon-ac360-lah-pkg-vpx.cnn](https://www.cnn.com/videos/us/2021/01/30/mayor-sequim-washington-qanon-ac360-lah-pkg-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 02:23:02+00:00
+
+CNN's Kyung Lah visits the town of Sequim, Washington, where Mayor William Armacost is under scrutiny by residents for his stance on QAnon.
+
+## Former China Huarong chairman executed after bribery conviction
+ - [https://www.cnn.com/2021/01/29/china/huarong-lai-xiaomin-china-executed-intl-hnk/index.html](https://www.cnn.com/2021/01/29/china/huarong-lai-xiaomin-china-executed-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 02:14:27+00:00
+
+The former chairman of China Huarong Asset Management Co., Lai Xiaomin, was executed on Friday following his conviction on bribery charges by a court in Tianjin, the official People's Daily reported.
+
+## Senate Republicans say Trump should be held accountable for riot -- but not by them
+ - [https://www.cnn.com/2021/01/29/politics/senate-republicans-trump-impeachment-capitol-riot/index.html](https://www.cnn.com/2021/01/29/politics/senate-republicans-trump-impeachment-capitol-riot/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 02:05:41+00:00
+
+To Senate Minority Whip John Thune, former President Donald Trump's actions ahead of the deadly Capitol riot are totally indefensible.
+
+## Michael Thompson is free after decades in prison. Now he wants to be an advocate for criminal justice reform
+ - [https://www.cnn.com/2021/01/29/us/michael-thompson-michigan-release/index.html](https://www.cnn.com/2021/01/29/us/michael-thompson-michigan-release/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 02:04:22+00:00
+
+Michael Thompson spent more than two decades behind bars for convictions stemming from a marijuana sale. At 4 a.m. on Thursday, he finally walked out of prison to greet his family and the supporters who spent decades fiercely advocating for his release.
+
+## Feds charge woman allegedly heard during Capitol riot saying she was looking for Pelosi 'to shoot her in the friggin' brain'
+ - [https://www.cnn.com/2021/01/29/politics/capitol-pelosi-bancroft/index.html](https://www.cnn.com/2021/01/29/politics/capitol-pelosi-bancroft/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 01:51:42+00:00
+
+Federal prosecutors charged a woman in connection to the January 6 riot at the US Capitol in Washington who they say can be heard on video making violent remarks about House Speaker Nancy Pelosi.
+
+## 'I'm out': Longtime GOP donor explains why he's leaving the party
+ - [https://www.cnn.com/videos/politics/2021/01/30/jacob-monty-longtime-republican-leaving-party-sot-ebof-vpx.cnn](https://www.cnn.com/videos/politics/2021/01/30/jacob-monty-longtime-republican-leaving-party-sot-ebof-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 01:46:20+00:00
+
+Lifelong Republican and donor Jacob Monty tells CNN's Erin Burnett why he is leaving the party and joining the Democratic party.
+
+## Kevin McCarthy to meet with Marjorie Taylor Greene next week
+ - [https://www.cnn.com/2021/01/29/politics/marjorie-taylor-greene-kevin-mccarthy-meeting/index.html](https://www.cnn.com/2021/01/29/politics/marjorie-taylor-greene-kevin-mccarthy-meeting/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 01:42:44+00:00
+
+House Minority Leader Kevin McCarthy will meet with controversial freshman Rep. Marjorie Taylor Greene next week, his spokesperson told CNN on Friday.
+
+## A Louisiana cemetery told the family of a Black deputy he couldn't be buried there because it was only for White people
+ - [https://www.cnn.com/2021/01/29/us/louisiana-cemetery-whites-only-trnd/index.html](https://www.cnn.com/2021/01/29/us/louisiana-cemetery-whites-only-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 01:36:36+00:00
+
+When Karla Semien went to a cemetery to pick out a plot where her late husband would be buried, it was as if she'd stepped back into the 1950's.
+
+## Women in China are spurning men and babies and the government is worried
+ - [https://www.cnn.com/2021/01/29/china/china-millennials-marriage-intl-hnk/index.html](https://www.cnn.com/2021/01/29/china/china-millennials-marriage-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 00:50:27+00:00
+
+Two years ago, Joanne Su was anxious about turning 30 years old.
+
+## Trump Organization's tax firm ordered to hand over more documents to NY attorney general
+ - [https://www.cnn.com/2021/01/29/politics/trump-taxes-westchester/index.html](https://www.cnn.com/2021/01/29/politics/trump-taxes-westchester/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 00:48:40+00:00
+
+A New York state judge on Friday ordered a tax firm that has worked with former President Donald Trump to turn over more documents to New York Attorney General Letitia James as part of her office's investigation into the Trump Organization.
+
+## Inside the Reddit army that's crushing Wall Street
+ - [https://www.cnn.com/2021/01/29/investing/wallstreetbets-reddit-culture/index.html](https://www.cnn.com/2021/01/29/investing/wallstreetbets-reddit-culture/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 00:34:51+00:00
+
+• Analysis: Hedge funds bitching about Reddit can cry me a river
+
+## US Capitol Police officer killed during insurrection will lie in honor at Capitol
+ - [https://www.cnn.com/2021/01/29/politics/brian-sicknick-lie-in-honor-capitol-police/index.html](https://www.cnn.com/2021/01/29/politics/brian-sicknick-lie-in-honor-capitol-police/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 00:31:28+00:00
+
+House Speaker Nancy Pelosi and Senate Majority Leader Chuck Schumer announced on Friday that the body of US Capitol Police Officer Brian D. Sicknick will lie in honor in the Capitol Rotunda.
+
+## Coachella, Stagecoach festivals canceled again because of the coronavirus pandemic
+ - [https://www.cnn.com/2021/01/29/us/coachella-stagecoach-canceled/index.html](https://www.cnn.com/2021/01/29/us/coachella-stagecoach-canceled/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-30 00:14:31+00:00
+
+The Coachella and Stagecoach festivals, two of Southern California's largest music celebrations, have again been canceled under an order issued Friday by  the Riverside County health officer.
+

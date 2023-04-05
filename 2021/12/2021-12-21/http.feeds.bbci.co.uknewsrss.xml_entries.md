@@ -1,0 +1,254 @@
+# Source:BBC, URL:http://feeds.bbci.co.uk/news/rss.xml, language:en-US
+
+## Perfectly preserved dinosaur embryo found in China
+ - [https://www.bbc.co.uk/news/world-asia-china-59748281?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/world-asia-china-59748281?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 23:36:13+00:00
+
+Researchers say the fossil is at least 66 million years old and was about to hatch just like a chicken.
+
+## Schumacher named Ferrari reserve driver
+ - [https://www.bbc.co.uk/sport/formula1/59742339?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/sport/formula1/59742339?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 23:29:13+00:00
+
+Mick Schumacher will combine his race seat at Haas in 2022 with a role as Ferrari's reserve driver.
+
+## Quiz of the Year, part two: What was in the news last spring?
+ - [https://www.bbc.co.uk/news/world-59645996?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/world-59645996?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 20:29:12+00:00
+
+How well do you remember the news of the past 12 months?
+
+## Covid: Rishi Sunak announces £1bn fund for businesses
+ - [https://www.bbc.co.uk/news/uk-59742884?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-59742884?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 18:52:37+00:00
+
+It comes as pubs and restaurants struggle with reduced footfall and cancellations amid Covid fears.
+
+## Omicron: Andrew Lloyd Webber halts Cinderella musical until February
+ - [https://www.bbc.co.uk/news/entertainment-arts-59742071?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/entertainment-arts-59742071?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 18:39:28+00:00
+
+The West End musical will return "as soon as this wave is licked", the composer and producer says.
+
+## No new Covid rules for England before Christmas
+ - [https://www.bbc.co.uk/news/uk-59747966?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-59747966?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 18:37:59+00:00
+
+But Boris Johnson says "we can't rule out any further measures after Christmas" as Omicron spreads fast.
+
+## Malaysia hit by the worst floods in decades
+ - [https://www.bbc.co.uk/news/world-59749146?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/world-59749146?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 18:22:22+00:00
+
+At least 14 people have died and tens of thousands evacuated their homes after torrential rain.
+
+## OnlyFans founder is making way for firm's marketing chief
+ - [https://www.bbc.co.uk/news/business-59732940?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/business-59732940?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 18:12:03+00:00
+
+The founder of the content subscription site is stepping aside to focus on new endeavours.
+
+## Covid: No new measures in England before Christmas and Sunak sets out help for Covid-hit firms
+ - [https://www.bbc.co.uk/news/uk-59744291?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-59744291?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 18:03:00+00:00
+
+Five things you need to know about the coronavirus pandemic this Tuesday evening.
+
+## England's Archer ruled out until summer after second operation on elbow
+ - [https://www.bbc.co.uk/sport/cricket/59740346?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/sport/cricket/59740346?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 17:58:51+00:00
+
+England fast bowler Jofra Archer is ruled out until the summer after having a second operation on his long-standing right elbow injury.
+
+## Celtic & Motherwell want winter break brought forward to avoid capped capacities
+ - [https://www.bbc.co.uk/sport/football/59748682?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/sport/football/59748682?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 17:05:44+00:00
+
+Celtic and Motherwell request the Scottish Premiership winter break is brought forward to avoid festive fixtures being impacted by capped capacities.
+
+## Omicron: Sandringham Royal watchers will miss seeing the Queen
+ - [https://www.bbc.co.uk/news/uk-england-norfolk-59741073?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-england-norfolk-59741073?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 16:51:14+00:00
+
+Royal watchers will miss seeing the monarch at Sandringham but back her decision to stay away.
+
+## Why no team is in control of Premier League title race - Shearer analysis
+ - [https://www.bbc.co.uk/sport/football/59722250?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/sport/football/59722250?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 16:47:19+00:00
+
+Manchester City are top of the Premier League at Christmas but Liverpool and Chelsea are still right in the title race, says MOTD pundit Alan Shearer.
+
+## Covid passports: Club owner's mum gives out lateral flow tests all night
+ - [https://www.bbc.co.uk/news/newsbeat-59740748?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/newsbeat-59740748?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 16:19:35+00:00
+
+Rich Gilbert says 30% of people arriving at his nightclub didn't know they needed a Covid passport.
+
+## Gibbons responsible for fall that left Tylicki paralysed, judge rules
+ - [https://www.bbc.co.uk/sport/horse-racing/59746231?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/sport/horse-racing/59746231?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 16:09:42+00:00
+
+Former jockey Graham Gibbons was responsible for the fall that left fellow jockey Freddy Tylicki paralysed from the waist down, a judge has ruled.
+
+## Harvey Parker: Police release CCTV images of missing student
+ - [https://www.bbc.co.uk/news/uk-england-london-59740267?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-england-london-59740267?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 15:28:06+00:00
+
+Harvey Parker, 20, who has autism, was last seen leaving Heaven nightclub near Charing Cross.
+
+## Hogmanay events cancelled as Covid rules tightened in Scotland
+ - [https://www.bbc.co.uk/news/uk-scotland-scotland-politics-59745262?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-scotland-scotland-politics-59745262?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 15:06:06+00:00
+
+Outdoor events including football matches will be limited to 500 people, and indoor to a maximum of 200.
+
+## Seal pup freed from hole after three-hour rescue in Norfolk
+ - [https://www.bbc.co.uk/news/uk-england-norfolk-59745242?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-england-norfolk-59745242?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 14:54:56+00:00
+
+Rescuers say the animal was "really jammed" and at risk of drowning at high tide.
+
+## Scottish sport to be 'effectively spectator-free' over festive period
+ - [https://www.bbc.co.uk/sport/scotland/59745054?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/sport/scotland/59745054?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 14:33:42+00:00
+
+Festive sport in Scotland will be "effectively spectator-free" as the government continues the fight against Covid-19's Omicron variant.
+
+## Police Federation chair John Apter suspended over sexual touching claims
+ - [https://www.bbc.co.uk/news/uk-england-hampshire-59744052?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-england-hampshire-59744052?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 14:06:07+00:00
+
+The police watchdog has started an independent investigation over sexual misconduct claims.
+
+## 'England look even worse than on the last Ashes tour'
+ - [https://www.bbc.co.uk/sport/cricket/59741381?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/sport/cricket/59741381?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 13:50:09+00:00
+
+Geoff Lemon says Australians are perplexed by an England team that may be heading for a more crushing Ashes defeat than four years ago.
+
+## The Afghans building a new life in the Hebrides
+ - [https://www.bbc.co.uk/news/uk-scotland-highlands-islands-59727414?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-scotland-highlands-islands-59727414?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 12:53:32+00:00
+
+Frishta Matin and her family risked their lives to flee the Taliban for a new start in Lewis.
+
+## Big Ben will bong again to see in the new year
+ - [https://www.bbc.co.uk/news/uk-politics-59739696?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-politics-59739696?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 12:12:13+00:00
+
+The Elizabeth Tower, which houses the bell and famous clock, has undergone four years of repairs.
+
+## Omicron: Will schools be open in January?
+ - [https://www.bbc.co.uk/news/education-51643556?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/education-51643556?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 11:50:37+00:00
+
+A number of schools across the UK are preparing to switch to online learning after Christmas.
+
+## Downing Street gatherings: What were the Covid rules at the time?
+ - [https://www.bbc.co.uk/news/uk-politics-59577129?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-politics-59577129?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 11:11:07+00:00
+
+Several alleged gatherings are being investigated by a senior civil servant.
+
+## Princess Haya: The princess, the sheikh and the £550m divorce settlement
+ - [https://www.bbc.co.uk/news/world-middle-east-59739563?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/world-middle-east-59739563?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 10:34:52+00:00
+
+A UK court publishes a ruling in the divorce case of Sheikh Mohammed and his ex-wife Princess Haya.
+
+## Alt-J's Thom Sonny Green: From shielding to getting back on tour
+ - [https://www.bbc.co.uk/news/newsbeat-59703811?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/newsbeat-59703811?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 10:29:41+00:00
+
+Thom Sonny Green says the risk of catching Covid is worth it to get back on stage.
+
+## Christmas restrictions: 'I don't have a turkey in the fridge'
+ - [https://www.bbc.co.uk/news/uk-59740609?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-59740609?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 10:20:56+00:00
+
+With just four days until Christmas, people are wondering if new restrictions will be brought in.
+
+## The Matrix's real-world legacy - from red pill incels to conspiracies and deepfakes
+ - [https://www.bbc.co.uk/news/entertainment-arts-57572152?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/entertainment-arts-57572152?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 09:34:53+00:00
+
+As The Matrix returns, we explore the enduring legacy of the franchise in culture, tech and beyond.
+
+## Coronavirus treatments: What progress is being made?
+ - [https://www.bbc.co.uk/news/health-52354520?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/health-52354520?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 09:22:43+00:00
+
+Medical teams around the world are learning which medicines work best against Covid.
+
+## Largest-ever millipede fossil found on Northumberland beach
+ - [https://www.bbc.co.uk/news/science-environment-59734747?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/science-environment-59734747?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 03:47:20+00:00
+
+It is thought to have been more than 2.5m long and lived 326 million years ago in Northumberland.
+
+## Berlusconi seeks comeback role as Italian president
+ - [https://www.bbc.co.uk/news/world-europe-59664078?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/world-europe-59664078?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 00:33:09+00:00
+
+Despite the scandals and a tax fraud conviction, Italy's most colourful ex-PM could be head of state.
+
+## Omicron: South African scientists probe link between variants and untreated HIV
+ - [https://www.bbc.co.uk/news/world-africa-59697807?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/world-africa-59697807?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 00:29:12+00:00
+
+Covid variants may be mutating inside people with suppressed immunity.
+
+## Why China could win the new global arms race
+ - [https://www.bbc.co.uk/news/world-asia-china-59600475?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/world-asia-china-59600475?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 00:26:19+00:00
+
+China has a long-term plan to rival the world's biggest military powers.
+
+## 'Wonderful' to give back after childhood poverty
+ - [https://www.bbc.co.uk/news/uk-england-derbyshire-59734724?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/uk-england-derbyshire-59734724?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 00:07:05+00:00
+
+Amanda Paget is drawing on her experiences as a child to provide festive food for families in need.
+
+## Indian Christians fear attacks or jail over conversions
+ - [https://www.bbc.co.uk/news/world-asia-india-59724425?at_medium=RSS&at_campaign=KARANGA](https://www.bbc.co.uk/news/world-asia-india-59724425?at_medium=RSS&at_campaign=KARANGA)
+ - RSS feed: http://feeds.bbci.co.uk/news/rss.xml
+ - date published: 2021-12-21 00:06:03+00:00
+
+Christians in Karnataka state say attacks against them have grown ahead of a new anti-conversion law.
+

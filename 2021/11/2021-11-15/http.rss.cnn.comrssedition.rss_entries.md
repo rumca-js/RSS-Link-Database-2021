@@ -1,0 +1,268 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## 'Life after birth': Intimate photos show postpartum journeys of celebrities and mothers everywhere
+ - [https://www.cnn.com/style/article/life-after-birth-book/index.html](https://www.cnn.com/style/article/life-after-birth-book/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 23:03:51+00:00
+
+Despite being outwardly successful, entrepreneur Joanna Griffiths found herself struggling behind closed doors when she became a mother for the first time. In 2019, on the same day her Toronto-based underwear brand Knix won a marketing award, she was seeking breastfeeding advice from a lactation consultant.
+
+## Bannon on Garland: This is going to be a misdemeanor from hell
+ - [https://www.cnn.com/videos/politics/2021/11/15/steve-bannon-merrick-garland-court-bts-vpx-nr.cnn](https://www.cnn.com/videos/politics/2021/11/15/steve-bannon-merrick-garland-court-bts-vpx-nr.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 21:30:47+00:00
+
+Trump ally Steve Bannon has been released from custody pending trial on charges of contempt of Congress after he failed to comply with subpoenas from the House committee investigating January 6.
+
+## Father died saving daughter in plane crash, family friend says
+ - [https://www.cnn.com/2021/11/14/us/mi-sole-survivor-plane-crash/index.html](https://www.cnn.com/2021/11/14/us/mi-sole-survivor-plane-crash/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 20:56:47+00:00
+
+A victim in a Michigan plane crash died while saving his eldest daughter's life, a family friend and business partner said.
+
+## EU slaps new sanctions on Belarus
+ - [https://www.cnn.com/2021/11/15/europe/poland-belarus-border-crisis-nato-intl/index.html](https://www.cnn.com/2021/11/15/europe/poland-belarus-border-crisis-nato-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 20:15:51+00:00
+
+The European Union has said it will slap new sanctions on Belarus targeting "everyone involved" in facilitating a migrant crisis on the bloc's eastern frontier, as military moves and accusations continue to test a fragile political order in the region.
+
+## Watch Adele help pull off beautiful surprise proposal
+ - [https://www.cnn.com/videos/entertainment/2021/11/15/adele-proposal-one-night-only-oprah-orig-jk.cnn](https://www.cnn.com/videos/entertainment/2021/11/15/adele-proposal-one-night-only-oprah-orig-jk.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 19:26:37+00:00
+
+Adele invited a special guest to propose to his girlfriend at her "One Night Only" concert at the Griffith Observatory in Los Angeles.
+
+## Video shows moment of explosion in Liverpool terror attack
+ - [https://www.cnn.com/videos/world/2021/11/15/liverpool-terror-attack-footage-nr-intl-ldn-vpx.cnn](https://www.cnn.com/videos/world/2021/11/15/liverpool-terror-attack-footage-nr-intl-ldn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 16:04:28+00:00
+
+CCTV footage shows the moment of an explosion outside a hospital in Liverpool, UK. Police have declared the blast a terrorist incident and said they believed the explosion occurred when a man brought an improvised device into a taxi.
+
+## Liverpool terrorist incident caused by man who brought explosive device into taxi, police say
+ - [https://www.cnn.com/2021/11/15/uk/liverpool-hospital-car-explosion-monday-gbr-intl/index.html](https://www.cnn.com/2021/11/15/uk/liverpool-hospital-car-explosion-monday-gbr-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:54:14+00:00
+
+UK police have declared a car explosion that took place in Liverpool on Sunday a terrorist incident.
+
+## Aides worn out by dysfunction in vice president's office
+ - [https://www.cnn.com/videos/politics/2021/11/14/kamala-harris-vice-president-white-house-sot-vpx-nr.cnn](https://www.cnn.com/videos/politics/2021/11/14/kamala-harris-vice-president-white-house-sot-vpx-nr.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:51:32+00:00
+
+Many current and former West Wing aides say that Vice President Kamala Harris is not being adequately prepared or positioned, and instead is being sidelined, causing frustration among staffers.
+
+## Superman Returns: Cam Newton shines in Panthers win with two touchdowns in first two touches
+ - [https://www.cnn.com/2021/11/15/sport/cam-newton-carolina-panthers-return-spt-intl/index.html](https://www.cnn.com/2021/11/15/sport/cam-newton-carolina-panthers-return-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:49:02+00:00
+
+"I'm back!" Superman has returned to Carolina and he marked his return in typical heroic fashion.
+
+## Lewis Hamilton keeps F1 title hopes alive with 'utterly awesome' victory in Sao Paulo Grand Prix
+ - [https://www.cnn.com/2021/11/15/motorsport/lewis-hamilton-sao-paulo-grand-prix-win-spt-intl/index.html](https://www.cnn.com/2021/11/15/motorsport/lewis-hamilton-sao-paulo-grand-prix-win-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:30:49+00:00
+
+Lewis Hamilton produced one of the greatest performances of his career to hunt down Formula One title rival Max Verstappen and win an action-packed Sao Paulo Grand Prix on Sunday.
+
+## US President Joe Biden called Irish rugby union team to congratulate them on their win over New Zealand
+ - [https://www.cnn.com/2021/11/15/sport/biden-ireland-rugby-intl-spt/index.html](https://www.cnn.com/2021/11/15/sport/biden-ireland-rugby-intl-spt/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:29:25+00:00
+
+The Irish rugby union team has friends in high places.
+
+## In a sea of yellow, a final farewell to Valentino Rossi
+ - [https://www.cnn.com/2021/11/15/motorsport/valentino-rossi-farewell-race-retirement-motogp-spt-intl/index.html](https://www.cnn.com/2021/11/15/motorsport/valentino-rossi-farewell-race-retirement-motogp-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:25:12+00:00
+
+On Sunday, in front of packed Ricardo Torno circuit in Valencia, Spain, the curtain finally fell on the extraordinary career of the most iconic motorcycle racer in history, Valentino Rossi.
+
+## Adele brings hope to hearts everywhere with surprise proposal during special
+ - [https://www.cnn.com/2021/11/14/entertainment/adele-one-night-only-oprah-highlights/index.html](https://www.cnn.com/2021/11/14/entertainment/adele-one-night-only-oprah-highlights/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:25:07+00:00
+
+Adele might be the queen of speaking truth to our heartbreaks, but it was her role in bringing two people together that stole the show during her Sunday night CBS special.
+
+## MTV's Europe Music Awards honor campaigners for LGBTQ+ rights in ceremony in Hungary
+ - [https://www.cnn.com/2021/11/15/entertainment/ema-budapest-lgbtq-intl-scli/index.html](https://www.cnn.com/2021/11/15/entertainment/ema-budapest-lgbtq-intl-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:24:08+00:00
+
+English singer-songwriter Ed Sheeran won best artist and best song for "Bad Habits," while K-pop stars BTS snatched four awards at MTV's Europe Music Awards, which returned as an in-person event after a virtual 2020 edition due to the pandemic.
+
+## World's largest inflatable hangar pops up in the desert
+ - [https://www.cnn.com/travel/article/buildair-inflatable-aircraft-hangar-cmd/index.html](https://www.cnn.com/travel/article/buildair-inflatable-aircraft-hangar-cmd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:23:16+00:00
+
+Airport infrastructure can take a very long time to build.
+
+## Watch giant inflatable airport hangar pop up
+ - [https://www.cnn.com/videos/travel/2021/11/05/inflatable-airport-hangars-lon-orig-na.cnn](https://www.cnn.com/videos/travel/2021/11/05/inflatable-airport-hangars-lon-orig-na.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:21:29+00:00
+
+Airport hangars can take years to build, but these inflatable models can be set up in a matter of hours. They have many benefits compared with the traditional design, and can be used for disaster relief.
+
+## Trump in full attack mode as Biden celebrates a victory that eluded him
+ - [https://www.cnn.com/2021/11/15/politics/donald-trump-steve-bannon-january-6-joe-biden-infrastructure/index.html](https://www.cnn.com/2021/11/15/politics/donald-trump-steve-bannon-january-6-joe-biden-infrastructure/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:17:24+00:00
+
+Donald Trump is tightening his malignant hold on American politics as Joe Biden battles to stabilize his own problem-plagued presidency by celebrating the kind of political win his predecessor never managed.
+
+## 500 National Guard troops on standby as closing arguments set for Kyle Rittenhouse trial
+ - [https://www.cnn.com/2021/11/15/us/kyle-rittenhouse-verdict-wisconsin-national-guard/index.html](https://www.cnn.com/2021/11/15/us/kyle-rittenhouse-verdict-wisconsin-national-guard/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:11:38+00:00
+
+As attorneys in the Kyle Rittenhouse homicide trial prepare for closing arguments Monday, Wisconsin Gov. Tony Evers has 500 National Guard troops on standby outside of Kenosha, ahead of a possible verdict.
+
+## American journalist Danny Fenster released from jail in Myanmar
+ - [https://www.cnn.com/2021/11/15/media/danny-fenster-myanmar-released-intl-hnk/index.html](https://www.cnn.com/2021/11/15/media/danny-fenster-myanmar-released-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 11:07:21+00:00
+
+American journalist Danny Fenster has been released from prison in Myanmar, according to Myanmar's military and former New Mexico governor Bill Richardson, who had been on a private humanitarian visit to the country.
+
+## Japan's economy shrinks more than expected as supply shortages hit
+ - [https://www.cnn.com/2021/11/15/economy/japan-economy-gdp-slumps/index.html](https://www.cnn.com/2021/11/15/economy/japan-economy-gdp-slumps/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 10:50:18+00:00
+
+Japan's economy contracted much faster than expected in the third quarter as global supply disruptions hit exports and business spending while new Covid-19 cases soured the consumer mood, undermining efforts to stoke a virtuous growth cycle.
+
+## Nelly Korda wins dramatic four-way playoff to continue dominant season
+ - [https://www.cnn.com/2021/11/15/golf/nelly-korda-pelican-womens-championship-spt-intl/index.html](https://www.cnn.com/2021/11/15/golf/nelly-korda-pelican-womens-championship-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 10:31:56+00:00
+
+World No. 1 Nelly Korda won a dramatic four-way playoff with some of golf's biggest names to continue her dominant 2021 season.
+
+## Police investigate video of racist rant encouraging a Black student to take her own life
+ - [https://www.cnn.com/2021/11/15/us/minnesota-racist-rant-investigation/index.html](https://www.cnn.com/2021/11/15/us/minnesota-racist-rant-investigation/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 10:31:23+00:00
+
+Police in Savage, Minnesota, are investigating a racist video shared widely on social media where a young girl is seen spewing hateful, racist slurs towards a Black high school student, encouraging her to take her own life.
+
+## Philippine President Rodrigo Duterte won't run against daughter in election, spokesperson says
+ - [https://www.cnn.com/2021/11/15/asia/rodrigo-duterte-election-candidacy-intl-hnk/index.html](https://www.cnn.com/2021/11/15/asia/rodrigo-duterte-election-candidacy-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 10:23:59+00:00
+
+Philippines President Rodrigo Duterte will file his candidacy for next year's election later on Monday, his spokesperson said, but he will not compete against his daughter, who is running for vice president.
+
+## Roger Federer unlikely to play Australian Open, says coach
+ - [https://www.cnn.com/2021/11/15/tennis/roger-federer-australian-open-coach-spt-intl/index.html](https://www.cnn.com/2021/11/15/tennis/roger-federer-australian-open-coach-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 10:15:38+00:00
+
+Roger Federer is unlikely to play in next year's Australian Open but is still determined to make a return to tournament tennis at some stage, according to his coach Ivan Ljubicic.
+
+## Austria locks down unvaccinated population
+ - [https://www.cnn.com/2021/11/14/europe/austria-lockdown-unvaccinated-intl/index.html](https://www.cnn.com/2021/11/14/europe/austria-lockdown-unvaccinated-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 10:09:07+00:00
+
+Austria will implement lockdown measures for all those aged 12 and older who are not fully vaccinated against Covid-19 from Monday, Chancellor Alexander Schallenberg announced.
+
+## Biden set to engage in critical talks with President Xi Jinping Monday amid fierce tensions with China
+ - [https://www.cnn.com/2021/11/15/politics/joe-biden-xi-jinping-virtual-summit/index.html](https://www.cnn.com/2021/11/15/politics/joe-biden-xi-jinping-virtual-summit/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 10:06:47+00:00
+
+When Chinese President Xi Jinping beams into the White House on Monday evening for a virtual summit with President Joe Biden, the two men will need no introduction.
+
+## The killing of a corgi shows how government power has grown unchecked in China in the name of Covid prevention
+ - [https://www.cnn.com/2021/11/15/china/china-dog-killed-covid-mic-intl-hnk/index.html](https://www.cnn.com/2021/11/15/china/china-dog-killed-covid-mic-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 09:24:22+00:00
+
+A series of loud bangs startle the sleeping corgi, driving it out of its bed. The door opens and two people dressed in full hazmat suits enter the living room, one carrying a crowbar and another a yellow plastic bag.
+
+## Xi gets his pet stock exchange in Beijing
+ - [https://www.cnn.com/2021/11/15/investing/china-beijing-stock-exchange-debut-intl-hnk/index.html](https://www.cnn.com/2021/11/15/investing/china-beijing-stock-exchange-debut-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 09:20:44+00:00
+
+The Beijing Stock Exchange, President Xi Jinping's new financial baby, is finally here.
+
+## How would you look as a Viking? Jim Lyngvild has some ideas
+ - [https://www.cnn.com/travel/article/jim-lyngvild-viking-photos-denmark-qwow-spc-intl/index.html](https://www.cnn.com/travel/article/jim-lyngvild-viking-photos-denmark-qwow-spc-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 08:39:26+00:00
+
+If you've seen Vikings depicted on TV, you'd be forgiven for picturing them with unkempt beards, wearing helmets with horns and ready for battle. But Danish photographer, designer and Viking descendent Jim Lyngvild wants to give them more depth.
+
+## Biden and Xi expected to meet virtually soon. Here's what's at stake
+ - [https://www.cnn.com/videos/world/2021/11/15/china-us-xi-biden-summit-preview-culver-pkg-intl-hnk-vpx.cnn](https://www.cnn.com/videos/world/2021/11/15/china-us-xi-biden-summit-preview-culver-pkg-intl-hnk-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 08:01:12+00:00
+
+The stakes are high for the anticipated summit between Chinese president Xi Jinping and US president Joe Biden. The world's two biggest economies have been sparring over a range of issues from the origins of the pandemic to security, trade and human rights. CNN's David Culver reports.
+
+## Indian police kill 26 Maoist militants 'camping in the forest'
+ - [https://www.cnn.com/2021/11/15/india/india-police-maoist-rebels-intl-hnk/index.html](https://www.cnn.com/2021/11/15/india/india-police-maoist-rebels-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 07:58:54+00:00
+
+Police in India's western state of Maharashtra have killed at least 26 Maoist militants, including a top leader, in an ambush operation in dense forest, a top government official said on Sunday.
+
+## Police arrest three after deadly Liverpool hospital car explosion
+ - [https://www.cnn.com/2021/11/14/uk/liverpool-hospital-car-explosion-gbr-intl/index.html](https://www.cnn.com/2021/11/14/uk/liverpool-hospital-car-explosion-gbr-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 07:18:04+00:00
+
+Counter-terrorism police are investigating after one person died and another was injured Sunday when a car exploded outside Liverpool Women's Hospital in northwest England.
+
+## China's Peng Shuai must be 'heard, not censored' on sexual assault claims: WTA
+ - [https://www.cnn.com/2021/11/14/china/peng-shuai-zhang-gaoli-allegations-wta-intl-hnk/index.html](https://www.cnn.com/2021/11/14/china/peng-shuai-zhang-gaoli-allegations-wta-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 07:07:45+00:00
+
+The Women's Tennis Association (WTA) on Sunday called on the Chinese government to investigate allegations of sexual assault made by Peng Shuai against a former state leader, insisting the former top-ranked doubles player should be "heard, not censored."
+
+## 9-year-old injured at Astroworld Festival dies, bringing death toll to 10
+ - [https://www.cnn.com/2021/11/14/us/astroworld-festival-child-death/index.html](https://www.cnn.com/2021/11/14/us/astroworld-festival-child-death/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 06:34:20+00:00
+
+The 9-year-old boy who was injured at the Astroworld Festival died Sunday, according to family attorney Ben Crump.
+
+## Another Southeast Asia nation has dropped its quarantine restrictions
+ - [https://www.cnn.com/travel/article/cambodia-quarantine-vaccinated-travelers/index.html](https://www.cnn.com/travel/article/cambodia-quarantine-vaccinated-travelers/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 05:40:06+00:00
+
+Cambodia will stop requiring quarantine for travelers who have been vaccinated for Covid-19 starting on November 15, Prime Minister Hun Sen said on Sunday.
+
+## 'I keep forgetting you're still alive:' Elon Musk trolls Bernie Sanders
+ - [https://www.cnn.com/2021/11/14/business/elon-musk-bernie-sanders-tweet/index.html](https://www.cnn.com/2021/11/14/business/elon-musk-bernie-sanders-tweet/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 02:11:44+00:00
+
+Elon Musk is trolling again on Twitter, and this time his target is Sen. Bernie Sanders.
+
+## Xi's China is closing to the world. And it isn't just about borders
+ - [https://www.cnn.com/2021/11/14/china/china-border-closure-inward-turn-dst-intl-hnk/index.html](https://www.cnn.com/2021/11/14/china/china-border-closure-inward-turn-dst-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 01:08:38+00:00
+
+It's been nearly two years since China shut its international borders as part of its efforts to keep Covid-19 out.
+
+## Lawmaker tweets about flooding same day she votes 'no' on infrastructure bill
+ - [https://www.cnn.com/videos/politics/2021/11/15/republicans-infrastructure-vote-money-politics-brown-ftr-nr-vpx.cnn](https://www.cnn.com/videos/politics/2021/11/15/republicans-infrastructure-vote-money-politics-brown-ftr-nr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-15 00:32:46+00:00
+
+CNN's Pamela Brown takes on GOP lawmakers who voted 'no' for the bipartisan infrastructure bill despite their states' need for infrastructure improvements.
+

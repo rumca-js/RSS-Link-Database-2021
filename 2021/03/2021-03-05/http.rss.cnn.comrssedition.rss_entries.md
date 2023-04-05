@@ -1,0 +1,282 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## CNN goes on board the plane with the Pope
+ - [https://www.cnn.com/videos/world/2021/03/05/pope-francis-iraq-baghdad-arrival-orig-bk-llr.cnn](https://www.cnn.com/videos/world/2021/03/05/pope-francis-iraq-baghdad-arrival-orig-bk-llr.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 23:43:10+00:00
+
+CNN's Delia Gallagher was on board the papal plane as Pope Francis traveled to Iraq. It was the first time a pope has visited the country.
+
+## Perseverance rover takes its first drive on Mars
+ - [https://www.cnn.com/2021/03/05/world/mars-perseverance-rover-first-drive-scn-trnd/index.html](https://www.cnn.com/2021/03/05/world/mars-perseverance-rover-first-drive-scn-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 23:23:25+00:00
+
+The NASA Perseverance rover has taken its first drive on Mars, traveling about 21 feet and doing a little spin across Jezero Crater. And that first 33-minute test drive on Thursday went "incredibly well," according to Anais Zarifian, Perseverance's mobility test bed engineer.
+
+## Trump State Department official charged for attacking police in Capitol riot
+ - [https://www.cnn.com/2021/03/05/politics/state-department-capitol-riot-federico-klein/index.html](https://www.cnn.com/2021/03/05/politics/state-department-capitol-riot-federico-klein/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 23:03:49+00:00
+
+A former Trump State Department political appointee appeared in Washington, DC, federal court Friday after being charged for pushing against police in the Capitol building during the January 6 insurrection.
+
+## John McAfee indicted on cryptocurrency fraud charges
+ - [https://www.cnn.com/2021/03/05/tech/john-mcafee-cryptocurrency-indictment/index.html](https://www.cnn.com/2021/03/05/tech/john-mcafee-cryptocurrency-indictment/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 22:36:50+00:00
+
+John David McAfee, the eccentric antivirus software pioneer, has been indicted on fraud and money laundering charges by the Department of Justice, which alleges he and a business partner participated in a scheme that earned more than $13 million by falsely promoting cryptocurrency to unwitting investors.
+
+## Here's how Canadian schools have stayed open
+ - [https://www.cnn.com/videos/world/2021/03/05/canada-schools-open-coronavirus-newton-lead-dnt-vpx.cnn](https://www.cnn.com/videos/world/2021/03/05/canada-schools-open-coronavirus-newton-lead-dnt-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 22:09:49+00:00
+
+While many US schools have yet to return to in-person learning amid the Covid-19 pandemic, most Canadian schools have been open for months. CNN's Paula Newton reports.
+
+## Latina councilwoman's accent mocked during video call
+ - [https://www.cnn.com/videos/us/2021/03/05/nancy-navarro-latina-councilwoman-mocked-accent-nr-vpx.cnn](https://www.cnn.com/videos/us/2021/03/05/nancy-navarro-latina-councilwoman-mocked-accent-nr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 21:55:46+00:00
+
+CNN's Brianna Keilar speaks with Montgomery County, Maryland, Councilwoman Nancy Navarro whose accent was mocked during a video call.
+
+## Pilots describe what it's like to fly in a pandemic
+ - [https://www.cnn.com/videos/business/2021/03/05/pilots-pandemic-qmb.cnnbusiness](https://www.cnn.com/videos/business/2021/03/05/pilots-pandemic-qmb.cnnbusiness)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 21:55:42+00:00
+
+CNN's Richard Quest reports how many pilots have been forced to adapt due to the pandemic and having a life under Covid-19.
+
+## White House warns of 'active threat' from Microsoft email hackers
+ - [https://www.cnn.com/2021/03/05/politics/white-house-warning-microsoft-hackers/index.html](https://www.cnn.com/2021/03/05/politics/white-house-warning-microsoft-hackers/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 21:54:48+00:00
+
+The Biden administration is increasingly sounding the alarm over a series of newly discovered cyber intrusions that Microsoft said this week were linked to China.
+
+## Myanmar envoy to UN: It seems like they have a license to kill
+ - [https://www.cnn.com/videos/world/2021/03/05/myanmar-dr-sasa-protests-amanpour-sot-vpx.cnn](https://www.cnn.com/videos/world/2021/03/05/myanmar-dr-sasa-protests-amanpour-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 21:54:35+00:00
+
+CNN's Christiane Amanpour speaks with Dr. Sasa, envoy representing Myanmar's Parliament to the UN, about the ongoing protests in Myanmar.
+
+## Inside Russia's deep frozen ghost towns
+ - [https://www.cnn.com/travel/article/vorkuta-russia-frozen-ghost-towns/index.html](https://www.cnn.com/travel/article/vorkuta-russia-frozen-ghost-towns/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 21:32:25+00:00
+
+Photographed from above, acres of snow engulf buildings as far as the eye can see.
+
+## Father arrested in India for beheading his 17-year-old daughter
+ - [https://www.cnn.com/2021/03/05/india/father-beheads-daughter-india-intl-scli/index.html](https://www.cnn.com/2021/03/05/india/father-beheads-daughter-india-intl-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 21:04:23+00:00
+
+Police in India's northern Uttar Pradesh state have arrested a man who confessed to beheading his teenage daughter.
+
+## NASA releases stunning new images from Mars
+ - [https://www.cnn.com/videos/tech/2021/03/05/nasa-mars-perseverance-rover-update-vpx.nasa](https://www.cnn.com/videos/tech/2021/03/05/nasa-mars-perseverance-rover-update-vpx.nasa)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 20:58:02+00:00
+
+NASA provides an update on Perseverance rover's "firsts" and milestones so far, as well as what's next.
+
+## See Sacha Baron Cohen's hilarious segment on 'Jimmy Kimmel Live!'
+ - [https://www.cnn.com/videos/media/2021/03/05/sacha-baron-cohen-covid-vaccine-spoof-kimmel-orig-bdk.cnn](https://www.cnn.com/videos/media/2021/03/05/sacha-baron-cohen-covid-vaccine-spoof-kimmel-orig-bdk.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 20:18:52+00:00
+
+Comedian and actor Sacha Baron Cohen revealed his fictional Covid-19 vaccine side business during a segment on "Jimmy Kimmel Live!."
+
+## SE Cupp: We are possibly living in the stupidest of times
+ - [https://www.cnn.com/videos/opinions/2021/03/05/se-cupp-culture-wars-unfiltered-vpx.cnn](https://www.cnn.com/videos/opinions/2021/03/05/se-cupp-culture-wars-unfiltered-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 19:37:18+00:00
+
+CNN's SE Cupp offers her take on Republicans' and right-wing media's fixation on culture wars while many Americans are still struggling during the Covid-19 pandemic.
+
+## Man arrested for allegedly defacing 'America's Stonehenge' with suspected QAnon graffiti
+ - [https://www.cnn.com/2021/03/05/us/qanon-americas-stonehenge-arrest-trnd/index.html](https://www.cnn.com/2021/03/05/us/qanon-americas-stonehenge-arrest-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 19:27:42+00:00
+
+A New Jersey man was arrested Monday after defacing an ancient rock formation in 2019 with suspected QAnon-related graffiti, according to police in Salem, New Hampshire.
+
+## Republicans face backlash after misleading House about skipping votes
+ - [https://www.cnn.com/2021/03/05/politics/proxy-voting-republicans-cpac-reaction/index.html](https://www.cnn.com/2021/03/05/politics/proxy-voting-republicans-cpac-reaction/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 18:26:42+00:00
+
+As he darted down to Florida last week and skipped crucial House votes, Republican Rep. Paul Gosar of Arizona neglected to tell GOP Rep. Ann Wagner of Missouri the full story behind why he needed her to vote in his place.
+
+## The taboo that cinema has rarely covered
+ - [https://www.cnn.com/style/article/dementia-films-2020-spc-intl/index.html](https://www.cnn.com/style/article/dementia-films-2020-spc-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 18:13:34+00:00
+
+
+
+## Concerns about vaccine nationalism rise
+ - [https://www.cnn.com/2021/03/05/europe/france-vaccine-italy-astrazeneca-intl/index.html](https://www.cnn.com/2021/03/05/europe/france-vaccine-italy-astrazeneca-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 17:59:59+00:00
+
+France said Friday it may follow Italy in blocking Covid-19 vaccine shipments as .
+
+## 17 outlandish lines from Trump's attack on Karl Rove
+ - [https://www.cnn.com/2021/03/05/politics/donald-trump-karl-rove-2020-election/index.html](https://www.cnn.com/2021/03/05/politics/donald-trump-karl-rove-2020-election/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 15:37:07+00:00
+
+On Thursday night, Donald Trump issued a, um, statement in which he savaged Karl Rove, a longtime Republican strategist who rose to prominence as the political Svengali for George W. Bush.
+
+## Floyd's brother speaks out ahead of Chauvin murder trial
+ - [https://www.cnn.com/videos/us/2021/03/05/philonise-floyd-ahead-of-trial-sot-newday-sidner-vpx.cnn](https://www.cnn.com/videos/us/2021/03/05/philonise-floyd-ahead-of-trial-sot-newday-sidner-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 15:06:08+00:00
+
+George Floyd's brother, Philonise Floyd, speaks out ahead of the murder trial for former Minneapolis police officer Derek Chauvin, who was seen on video kneeling on Floyd's neck. Chauvin's defense is expected to argue that Floyd's death was the result of his struggle with police, the drugs in his system and health issues.
+
+## House impeachment manager sues Trump and close allies over Capitol riot
+ - [https://www.cnn.com/2021/03/05/politics/trump-lawsuit-insurrection-eric-swalwell/index.html](https://www.cnn.com/2021/03/05/politics/trump-lawsuit-insurrection-eric-swalwell/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 14:17:03+00:00
+
+Former House impeachment manager Eric Swalwell has sued former President Donald Trump, his son Donald Trump Jr., Rudy Giuliani and Republican Rep. Mo Brooks in a second major lawsuit seeking to hold Trump and his allies accountable for inciting the insurrection at the US Capitol on January 6.
+
+## German doctor says those who shun Astrazeneca vaccine are 'spoiled'
+ - [https://www.cnn.com/videos/world/2021/03/05/germany-coronavirus-astrazeneca-vaccine-rollout-pleitgen-pkg-intl-ldn-vpx.cnn](https://www.cnn.com/videos/world/2021/03/05/germany-coronavirus-astrazeneca-vaccine-rollout-pleitgen-pkg-intl-ldn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 14:15:56+00:00
+
+Germany's vaccination authority has now approved the use of AstraZeneca's coronavirus vaccine for those aged over 65, despite a previous warning from the authority that there was not enough data to support its use in the elderly. While earlier messaging hurt public trust, acceptance of the vaccine is now on the rise. CNN's Frederik Pleitgen reports
+
+## Democrat quietly releases massive social media report on GOP colleagues who voted to overturn election
+ - [https://www.cnn.com/2021/03/05/politics/lofgren-social-media-report-gop-lawmakers/index.html](https://www.cnn.com/2021/03/05/politics/lofgren-social-media-report-gop-lawmakers/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 13:32:56+00:00
+
+Democratic Rep. Zoe Lofgren has quietly posted a nearly 2,000-page report documenting social media posts by her Republican colleagues who voted against certifying results of the presidential election on January 6. The information compiled isn't secret, but the report is  another sign of the deep distrust that has settled into the US Capitol in the weeks since the insurrection.
+
+## Senegal restricts internet as protests over rape allegation escalate
+ - [https://www.cnn.com/2021/03/05/africa/senegal-protests-rape-charge-intl/index.html](https://www.cnn.com/2021/03/05/africa/senegal-protests-rape-charge-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 12:51:05+00:00
+
+Over the past two days, at least one person has been killed in clashes between riot police and supporters of Ousmane Sonko, who say his detention on Wednesday in the wake of a rape allegation is politically motivated.
+
+## Harry and Meghan seem intent on exposing the monarchy for what they think it really is
+ - [https://www.cnn.com/2021/03/05/uk/meghan-harry-royal-rivalry-gbr-intl/index.html](https://www.cnn.com/2021/03/05/uk/meghan-harry-royal-rivalry-gbr-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 11:37:32+00:00
+
+Who isn't talking about Oprah Winfrey's much anticipated sit-down interview with Meghan and Harry?
+
+## What's on the agenda for China's annual political meeting?
+ - [https://www.cnn.com/videos/world/2021/03/05/china-two-sessions-2021-hong-kong-electoral-intl-hnk-vpx.cnn](https://www.cnn.com/videos/world/2021/03/05/china-two-sessions-2021-hong-kong-electoral-intl-hnk-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 08:18:36+00:00
+
+China is set to tighten its grip on Hong Kong even further as the country's top political gathering -- the People's  National Congress -- announced a plan to reform Hong Kong's electoral system. CNN's Kristie Lu Stout reports.
+
+## She survived two world wars, Spanish flu and cancer twice. Now she's in the Olympics
+ - [https://www.cnn.com/2021/03/04/sport/japan-supercentenarian-olympic-torchbearer-hnk-intl/index.html](https://www.cnn.com/2021/03/04/sport/japan-supercentenarian-olympic-torchbearer-hnk-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 04:40:21+00:00
+
+At 118 years old, the world's oldest living person is preparing to carry the Olympic torch this May in Japan.
+
+## With no successor in sight, Xi Jinping heads to major Party meeting with more power than ever
+ - [https://www.cnn.com/2021/03/04/asia/xi-jinping-china-npc-successor-intl-hnk/index.html](https://www.cnn.com/2021/03/04/asia/xi-jinping-china-npc-successor-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 04:35:48+00:00
+
+In March 2020, the annual meeting of China's national legislature in Beijing was delayed for the first time in decades, as Chinese President Xi Jinping attempted to gain control over what would fast become a global pandemic.
+
+## Analysis: China's plans to 'improve' democracy in Hong Kong could spell the end of the city's opposition
+ - [https://www.cnn.com/2021/03/04/asia/china-hong-kong-two-sessions-intl-hnk/index.html](https://www.cnn.com/2021/03/04/asia/china-hong-kong-two-sessions-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 04:26:48+00:00
+
+As members of China's political elite prepared for an annual summit in Beijing this week, state-run news agency Xinhua noted "there is no perfect democracy, only democracy that fits best."
+
+## Tiger Woods told police after crash that he didn't remember driving
+ - [https://www.cnn.com/2021/03/04/us/tiger-woods-no-recollection-driving/index.html](https://www.cnn.com/2021/03/04/us/tiger-woods-no-recollection-driving/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 03:43:04+00:00
+
+When Tiger Woods crashed his car in Southern California last week, he told sheriff's deputies that he had no recollection of driving or how the accident happened, according to a Los Angeles County affidavit for a search warrant of the vehicle's black box.
+
+## US stocks tumble as inflation fears rise
+ - [https://www.cnn.com/2021/03/04/economy/jerome-powell-inflation-jobs-market/index.html](https://www.cnn.com/2021/03/04/economy/jerome-powell-inflation-jobs-market/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 03:34:19+00:00
+
+US stocks tumbled Thursday after Federal Reserve Chairman Jerome Powell predicted an increase in consumer prices this summer — something investors fear will force interest rates up sooner than expected.
+
+## US states shift to vaccinate those in their 50s as supply expands
+ - [https://www.cnn.com/collections/intl-coronavirus-0303/](https://www.cnn.com/collections/intl-coronavirus-0303/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 03:19:41+00:00
+
+
+
+## Jared Kushner disappears from Trump's inner circle
+ - [https://www.cnn.com/2021/03/04/politics/donald-trump-jared-kushner-political-future/index.html](https://www.cnn.com/2021/03/04/politics/donald-trump-jared-kushner-political-future/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 02:32:56+00:00
+
+As Donald Trump plotted his Conservative Political Action Conference appearance last week, and a broader, more-robust plan to return to politics as an omnipresent disruptor, one person was conspicuously absent from the confab.
+
+## China sets GDP target of more than 6% in 2021
+ - [https://www.cnn.com/2021/03/04/economy/china-gdp-growth-two-sessions-intl-hnk/index.html](https://www.cnn.com/2021/03/04/economy/china-gdp-growth-two-sessions-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 02:30:15+00:00
+
+China bucked the global recession in 2020, and in doing so narrowed the economic gap with the United States. Now it says it needs to pick up the pace this year.
+
+## This Ford Mustang is eating into Tesla's US sales
+ - [https://www.cnn.com/2021/03/04/business/ford-mustang-mach-e-tesla-market-share/index.html](https://www.cnn.com/2021/03/04/business/ford-mustang-mach-e-tesla-market-share/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 02:25:36+00:00
+
+Tesla is starting to lose market share among US buyers of electric vehicles, and Ford's Mustang Mach-E appears to be the beneficiary.
+
+## COVAX offers hope of vaccine equality with roll out across Africa
+ - [https://www.cnn.com/2021/03/04/homepage2/covax-africa-rollout/index.html](https://www.cnn.com/2021/03/04/homepage2/covax-africa-rollout/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 02:18:41+00:00
+
+When Covid-19 vaccinations arrived in Kenya for the very first time this week, the country's health minister likened them to critical weapons of defense.
+
+## New Zealand downgrades tsunami warning after 8.1-magnitude quake
+ - [https://www.cnn.com/2021/03/04/world/new-zealand-quake-tsunami-warning-intl/index.html](https://www.cnn.com/2021/03/04/world/new-zealand-quake-tsunami-warning-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 02:03:56+00:00
+
+New Zealand's emegerncy agency has told people to leave home and reach higher ground after an 8.1-magnitude earthquake struck the nearby Kermadec Islands region early Friday.
+
+## First space hotel set to open in '27. Will you be booking?
+ - [https://www.cnn.com/travel/article/voyager-station-space-hotel-scn/index.html](https://www.cnn.com/travel/article/voyager-station-space-hotel-scn/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 02:02:24+00:00
+
+If you're daydreaming of future travels while stuck at home during the pandemic, why fantasize about the beaches of Bali or the canals of Venice when vacationing in space could be in your future?
+
+## Former NFL player sentenced to 14 years in prison for rape and sexual assault
+ - [https://www.cnn.com/2021/03/04/us/kellen-winslow-ii-conviction-sentence/index.html](https://www.cnn.com/2021/03/04/us/kellen-winslow-ii-conviction-sentence/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 01:56:05+00:00
+
+Former NFL player Kellen Winslow II was sentenced this week to 14 years in prison for rape and sexual assault, according to the San Diego County District Attorney's office.
+
+## Woman says she thought Gov. Cuomo was trying to sleep with her
+ - [https://www.cnn.com/2021/03/04/politics/charlotte-bennett-interview/index.html](https://www.cnn.com/2021/03/04/politics/charlotte-bennett-interview/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-03-05 01:42:58+00:00
+
+Charlotte Bennett, the second woman to go public with sexual harassment allegations against Democratic New York Gov. Andrew Cuomo, says she thought the governor was trying to sleep with her and she was deeply uncomfortable with questions he asked.
+

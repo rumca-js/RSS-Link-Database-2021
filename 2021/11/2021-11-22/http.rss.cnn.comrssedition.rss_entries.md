@@ -1,0 +1,37 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## Video: Are real or fake Christmas trees better for the environment?
+ - [https://www.cnn.com/videos/weather/2016/12/14/weather-real-vs-artificial-christmas-trees.cnn](https://www.cnn.com/videos/weather/2016/12/14/weather-real-vs-artificial-christmas-trees.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-22 22:20:50+00:00
+
+Get the facts before choosing your Christmas tree, and know which one might be better for the environment.
+
+## Michael Cohen says Trump won't run in 2024. Hear why
+ - [https://www.cnn.com/videos/politics/2021/11/22/michael-cohen-trump-2024-election-camerota-intv-sot-vpx.cnn](https://www.cnn.com/videos/politics/2021/11/22/michael-cohen-trump-2024-election-camerota-intv-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-22 20:43:34+00:00
+
+CNN's Alisyn Camerota sits down with Trump's former personal attorney Michael Cohen after he was released from house arrest. Cohen weighs in on Trump's leadership style and states whether he thinks the former president will run again in 2024.
+
+## Four-eared kitten becomes social media sensation
+ - [https://www.cnn.com/videos/world/2021/11/22/four-eared-kitten-midas-lon-orig-mrg.cnn](https://www.cnn.com/videos/world/2021/11/22/four-eared-kitten-midas-lon-orig-mrg.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-22 18:27:24+00:00
+
+Four-month old kitten Midas, from Turkey, was born with two sets of ears and a defective jaw due to a recessive genetic mutation, according to Reuters.
+
+## Watch Adele's tearful reunion with former teacher
+ - [https://www.cnn.com/videos/entertainment/2021/11/22/adele-teacher-reunion-lon-orig-tp.cnn](https://www.cnn.com/videos/entertainment/2021/11/22/adele-teacher-reunion-lon-orig-tp.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-22 16:34:14+00:00
+
+The British pop star broke down in tears during her ITV concert special, "An Audience with Adele," after a surprise reunion with her former English teacher.
+
+## Video shows reappearance of Peng but questions persist
+ - [https://www.cnn.com/videos/world/2021/11/22/peng-shuai-reappears-will-ripley-dnt-newday-intl-ldn-vpx.cnn](https://www.cnn.com/videos/world/2021/11/22/peng-shuai-reappears-will-ripley-dnt-newday-intl-ldn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-22 15:42:32+00:00
+
+Almost as abruptly as she had vanished, Chinese tennis star Peng Shuai reappeared in public view, however questions remain over her freedom. The flurry of videos came amid a firestorm of global concern for Peng, who disappeared from the public eye for more than two weeks after taking to social media to accuse former Vice Premier Zhang Gaoli of coercing her into sex at his home -- an explosive and politically sensitive allegation that triggered blanket censorship in China. CNN's Will Ripley reports.
+

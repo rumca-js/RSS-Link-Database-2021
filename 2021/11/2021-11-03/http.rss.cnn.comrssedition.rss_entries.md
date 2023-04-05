@@ -1,0 +1,296 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## The US President got an unwelcome wake-up call as he returned from Europe to a changed political landscape
+ - [https://www.cnn.com/2021/11/03/politics/biden-returns-virginia-loss/index.html](https://www.cnn.com/2021/11/03/politics/biden-returns-virginia-loss/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 20:45:15+00:00
+
+President Joe Biden on Wednesday received an unwelcome wake up call for his still-new presidency as the Democrat arrived back in Washington from a European excursion suddenly facing a transformed political landscape.
+
+## 'Rust' camera chief says set safety was 'massive issue'
+ - [https://www.cnn.com/2021/11/03/entertainment/rust-set-safety/index.html](https://www.cnn.com/2021/11/03/entertainment/rust-set-safety/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 20:27:17+00:00
+
+The head of the "Rust" camera department who submitted a letter of resignation one day before the fatal shooting on the Santa Fe, New Mexico, movie set last month is going public with claims of an unsafe working environment, calling safety on the project a "massive issue."
+
+## A 16-year-old was shot in the head while waiting for the school bus
+ - [https://www.cnn.com/2021/11/03/us/georgia-gwinnett-county-school-bus-stop-shooting/index.html](https://www.cnn.com/2021/11/03/us/georgia-gwinnett-county-school-bus-stop-shooting/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 20:19:46+00:00
+
+A 16-year-old high school student was in critical condition after being shot in the head by a fellow student Tuesday morning while waiting for a school bus, police in Gwinnett County, Georgia, said.
+
+## Georgia teen was shot in the head while waiting for school bus
+ - [https://www.cnn.com/videos/us/2021/11/03/teen-shot-school-bus-stop-georgia-pkg-vpx.wxia](https://www.cnn.com/videos/us/2021/11/03/teen-shot-school-bus-stop-georgia-pkg-vpx.wxia)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 20:17:48+00:00
+
+A 16-year-old high school student was in critical condition after being shot in the head by a fellow student while waiting for a school bus, police in Gwinnett County, Georgia, said. CNN affiliate WXIA reports.
+
+## QAnon believers gathered in Dallas to see something physically impossible
+ - [https://www.cnn.com/videos/business/2021/11/03/qanon-jfk-jr-dallas-trump-osullivan-newday-ldn-vpx.cnn](https://www.cnn.com/videos/business/2021/11/03/qanon-jfk-jr-dallas-trump-osullivan-newday-ldn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 19:42:45+00:00
+
+CNN's Donie O'Sullivan speaks with John Berman about why hundreds of QAnon believers gathered in Dallas to witness something impossible: the supposed return of John F. Kennedy and John F. Kennedy Jr., who died in 1963 and 1999, respectively.
+
+## 'World's best' cheese for 2021 revealed
+ - [https://www.cnn.com/travel/article/worlds-best-cheese-award-2021/index.html](https://www.cnn.com/travel/article/worlds-best-cheese-award-2021/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 19:38:51+00:00
+
+A soft goat's cheese from Spain won first place at the World Cheese Awards on Wednesday, besting the field of 4,079 entries from more than 40 countries on five continents.
+
+## Minneapolis voters reject policing overhaul ballot measure prompted by George Floyd's murder
+ - [https://www.cnn.com/2021/11/03/us/minneapolis-defund-police-vote/index.html](https://www.cnn.com/2021/11/03/us/minneapolis-defund-police-vote/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 19:25:19+00:00
+
+Minneapolis residents on Tuesday rejected  a ballot measure to overhaul policing  drafted amid the national fury over George Floyd's murder but that went to voters as concerns about rising gun violence drained energy from the protest movement that had launched it.
+
+## NYC deli bursts into flames after man throws molotov cocktail inside
+ - [https://www.cnn.com/videos/us/2021/11/03/molotov-cocktail-brooklyn-deli-orig-jk.cnn](https://www.cnn.com/videos/us/2021/11/03/molotov-cocktail-brooklyn-deli-orig-jk.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 19:24:29+00:00
+
+Fire marshals in New York have arrested a man who allegedly threw a molotov cocktail in a Brooklyn deli.
+
+## Florida man attempts action movie escape while running from cops
+ - [https://www.cnn.com/videos/us/2021/11/03/florida-bridge-police-chase-orig-jk.cnn](https://www.cnn.com/videos/us/2021/11/03/florida-bridge-police-chase-orig-jk.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 19:09:42+00:00
+
+A police chopper captured this Hollywood-worthy footage of an alleged car thief attempting to to evade police.
+
+## Jay-Z joins Instagram
+ - [https://www.cnn.com/2021/11/03/entertainment/jay-z-instagram/index.html](https://www.cnn.com/2021/11/03/entertainment/jay-z-instagram/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 19:00:46+00:00
+
+HOV is officially on the gram.
+
+## Why Tom Hanks turned down Jeff Bezos' offer to go to space
+ - [https://www.cnn.com/2021/11/03/entertainment/tom-hanks-jeff-bezos-space/index.html](https://www.cnn.com/2021/11/03/entertainment/tom-hanks-jeff-bezos-space/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 18:57:51+00:00
+
+Jeff Bezos offered Tom Hanks a ride to space on his Blue Origin rocket, but it came at a price.
+
+## What Aaron Rodgers, now benched for Sunday's game, has said about his Covid vaccine status
+ - [https://www.cnn.com/2021/11/03/sport/aaron-rodgers-covid-vaccine-status/index.html](https://www.cnn.com/2021/11/03/sport/aaron-rodgers-covid-vaccine-status/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 18:55:48+00:00
+
+Green Bay Packers star QB Aaron Rodgers will sit out Sunday's road game against the Kansas City Chiefs due to Covid-19 protocols, according to his team.
+
+## Supreme Court hears arguments on scope of Second Amendment and gun control laws
+ - [https://www.cnn.com/2021/11/03/politics/supreme-court-second-amendment-new-york-bruen/index.html](https://www.cnn.com/2021/11/03/politics/supreme-court-second-amendment-new-york-bruen/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 18:44:26+00:00
+
+Two days after hearing a major abortion case, the Supreme Court will take the bench again on Wednesday to discuss another topic that bitterly divides the country: gun rights.
+
+## At least 20 countries have agreed to stop funding fossil fuel projects abroad
+ - [https://www.cnn.com/collections/intl-cop26-0311/](https://www.cnn.com/collections/intl-cop26-0311/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 18:41:31+00:00
+
+
+
+## US blacklists Israeli firm NSO Group for use of spyware
+ - [https://www.cnn.com/2021/11/03/tech/nso-group-us-blacklist/index.html](https://www.cnn.com/2021/11/03/tech/nso-group-us-blacklist/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 18:05:08+00:00
+
+The US Commerce Department on Wednesday blacklisted Israeli firms NSO Group and Candiru, accusing the companies of providing spyware to foreign governments that "used these tools to maliciously target" journalists, embassy workers and activists.
+
+## Pentagon warns China is rapidly expanding its nuclear arsenal
+ - [https://www.cnn.com/2021/11/03/politics/pentagon-china-report/index.html](https://www.cnn.com/2021/11/03/politics/pentagon-china-report/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 17:55:47+00:00
+
+China is rapidly expanding its nuclear arsenal and may have 1,000 nuclear warheads by the end of the decade as it aims to surpass US global influence by the middle of the 21st century, according to a major Pentagon report released on Wednesday.
+
+## Lady Gaga on the intensity of filming 'House of Gucci': "Off camera, I never broke"
+ - [https://www.cnn.com/style/article/lady-gaga-vogue-cover-house-of-gucci/index.html](https://www.cnn.com/style/article/lady-gaga-vogue-cover-house-of-gucci/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 16:59:59+00:00
+
+Two years after her Oscar-nominated performance in the musical "A Star is Born," Lady Gaga is set to return once more to the silver screen. This time she'll be playing the socialite Patrizia Reggiani -- who arranged the murder of her ex-husband, fashion house head Maurizio Gucci -- in Ridley Scott's retelling of one of the most high-profile crimes of the 1990s.
+
+## Couple who thought they were being burglarized find endangered bear on balcony instead
+ - [https://www.cnn.com/2021/11/03/europe/italy-bear-balcony-encounter-scli-intl/index.html](https://www.cnn.com/2021/11/03/europe/italy-bear-balcony-encounter-scli-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 16:28:37+00:00
+
+A couple in central Italy who thought they were being burgled were instead shocked to find an endangered brown bear on their balcony.
+
+## Prince Andrew's legal team is fighting back in US sex assault case. Here's what you need to know
+ - [https://www.cnn.com/collections/prince-andrew-intl-110321/](https://www.cnn.com/collections/prince-andrew-intl-110321/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 16:23:07+00:00
+
+
+
+## Scientists say they now know what turned turned miles of the world's driest desert into glass
+ - [https://www.cnn.com/2021/11/03/world/atacama-desert-glass-comet-scn/index.html](https://www.cnn.com/2021/11/03/world/atacama-desert-glass-comet-scn/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 15:58:55+00:00
+
+The Atacama Desert in Chile has been used as a way to simulate alien environments, like Mars on Earth. Now, researchers believe it was the site of an ancient comet explosion intense enough to create giant slabs of silicate glass, according to a new study.
+
+## Opinion: The GOP's Trump-free campaign in Virginia worked
+ - [https://www.cnn.com/2021/11/03/opinions/glenn-youngkin-virginia-governor-gop-win-jennings/index.html](https://www.cnn.com/2021/11/03/opinions/glenn-youngkin-virginia-governor-gop-win-jennings/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 15:49:13+00:00
+
+Glenn Youngkin's win in Virginia's gubernatorial race -- a blowout in a state won just a year ago by President Joe Biden by 10 points -- proves that there's a market for an old fashioned, simple tactic: find a platform of issues that is responsive to voter concerns and run on it!
+
+## Greta Thunberg says she's going 'net-zero' on cussing after COP26 sing-along
+ - [https://www.cnn.com/2021/11/03/uk/greta-thunberg-net-zero-swearing-cop26-intl-scli-gbr/index.html](https://www.cnn.com/2021/11/03/uk/greta-thunberg-net-zero-swearing-cop26-intl-scli-gbr/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 15:38:07+00:00
+
+Climate activist Greta Thunberg has joked that she is adopting a "net-zero" approach to cursing, an apparent response to criticism of her use of strong language at a demonstration earlier this week.
+
+## American journalist denied bail and hit with new charge in Myanmar
+ - [https://www.cnn.com/2021/11/03/media/danny-fenster-myanmar-denied-bail-intl-hnk/index.html](https://www.cnn.com/2021/11/03/media/danny-fenster-myanmar-denied-bail-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 15:13:30+00:00
+
+American journalist Danny Fenster, who has been detained in Myanmar for five months, was denied bail and hit with a new charge Wednesday following a hearing inside Yangon's Insein Prison.
+
+## Israeli court halts auction of tattoo kit said to have been used at Auschwitz
+ - [https://www.cnn.com/2021/11/03/middleeast/auschwitz-tattoo-kit-auction-scli-intl/index.html](https://www.cnn.com/2021/11/03/middleeast/auschwitz-tattoo-kit-auction-scli-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 14:31:06+00:00
+
+An Israeli court suspended on Wednesday the auction of a partial tattoo kit billed as having been used on inmates at the Auschwitz death camp, following an outcry from Holocaust survivors.
+
+## Day of the Dead parade brings attention to serious issue in Mexico
+ - [https://www.cnn.com/videos/world/2021/11/03/mexico-femicide-march-day-of-the-dead-nobilo-tgb-intl-hnk-vpx.cnn](https://www.cnn.com/videos/world/2021/11/03/mexico-femicide-march-day-of-the-dead-nobilo-tgb-intl-hnk-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 14:22:43+00:00
+
+Mexico has seen high rates gender-based violence, especially femicide, the intentional murder of women because they're women, with nearly 1,000 femicide cases in 2020. Activists staged a march during the nation's Day of the Dead celebration to bring attention to the issue. CNN's Bianca Nobilo has more.
+
+## Pressure mounts on Yorkshire cricket board amid racism outcry
+ - [https://www.cnn.com/2021/11/03/sport/yorkshire-cricket-racism-row-spt-intl-scli/index.html](https://www.cnn.com/2021/11/03/sport/yorkshire-cricket-racism-row-spt-intl-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 14:17:49+00:00
+
+The chairman of Yorkshire County Cricket Club (Yorkshire CCC) has been summoned to the UK Parliament to answer questions over the club's handling of allegations of "institutional" and "endemic" racism.
+
+## 9-year-old girl shares her plan after receiving Covid-19 vaccine
+ - [https://www.cnn.com/videos/us/2021/11/03/kids-covid-19-vaccine-pfizer-gingras-newsroom-vpx.cnn](https://www.cnn.com/videos/us/2021/11/03/kids-covid-19-vaccine-pfizer-gingras-newsroom-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 14:08:12+00:00
+
+CNN's Brynn Gingras joins Newsroom from an urgent care from New York and speaks with a mother and daughter about getting the first dose of the Pfizer vaccine.
+
+## Analysis: Democrats misjudged the nation's mood
+ - [https://www.cnn.com/2021/11/03/politics/us-election-day-analysis-virginia-new-jersey-democrats-reckoning/index.html](https://www.cnn.com/2021/11/03/politics/us-election-day-analysis-virginia-new-jersey-democrats-reckoning/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 13:51:30+00:00
+
+Demoralized Democrats need a reckoning after a rough election night that sent serious warning signs that they have misjudged the nation's mood as their window closes before next year's midterms.
+
+## Analyst: Dems could lose in 2022 if they don't change this
+ - [https://www.cnn.com/videos/politics/2021/11/03/larry-sabato-virginia-analysis-ovn-2021-election-vpx.cnn](https://www.cnn.com/videos/politics/2021/11/03/larry-sabato-virginia-analysis-ovn-2021-election-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 13:51:06+00:00
+
+CNN's Rosemary Church speaks with Larry Sabato, political scientist and Director at the University of Virginia's Center for Politics, on what he thinks of the result of the Virginia's governor race.
+
+## Netflix games are here. Android users get to play first
+ - [https://www.cnn.com/2021/11/03/media/netflix-streaming-games-android/index.html](https://www.cnn.com/2021/11/03/media/netflix-streaming-games-android/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 12:54:41+00:00
+
+Netflix has launched five mobile games for Android phones and tablets, as it seeks to gain a bigger share of subscribers' attention and entertainment time.
+
+## Thierry Henry says social media companies make 'money through hate' as he launches online campaign
+ - [https://www.cnn.com/2021/11/03/football/thierry-henry-launches-campaign-to-fight-online-abuse-spt-intl/index.html](https://www.cnn.com/2021/11/03/football/thierry-henry-launches-campaign-to-fight-online-abuse-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 12:47:45+00:00
+
+Thierry Henry has accused social media companies of making "money through hate" and says they are still not doing enough to fight online abuse on their platforms.
+
+## Africa's second most populous nation is on the brink of all-out war
+ - [https://www.cnn.com/collections/intl-tigray-1103/](https://www.cnn.com/collections/intl-tigray-1103/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 11:51:22+00:00
+
+
+
+## Billionaire Charlie Munger praises China for being smarter than America at handling economic booms
+ - [https://www.cnn.com/2021/11/03/business/munger-china-economy/index.html](https://www.cnn.com/2021/11/03/business/munger-china-economy/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 11:47:17+00:00
+
+Billionaire Charlie Munger is a big fan of how communist China manages its economy.
+
+## Two dead, one injured ahead of ABBA tribute concert
+ - [https://www.cnn.com/2021/11/03/europe/abba-sweden-tribute-concert-dead-intl-hnk/index.html](https://www.cnn.com/2021/11/03/europe/abba-sweden-tribute-concert-dead-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 11:37:33+00:00
+
+Two people have died and a third person has been injured after an audience member fell from the seventh floor of a concert hall in Sweden into the crowd below, a police spokesman confirmed to CNN on Wednesday.
+
+## Stars return to Saudi Arabia as women's golf battles for equality
+ - [https://www.cnn.com/2021/11/03/golf/saudi-ladies-international-saudi-arabia-golf-spt-intl-spc/index.html](https://www.cnn.com/2021/11/03/golf/saudi-ladies-international-saudi-arabia-golf-spt-intl-spc/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 10:24:23+00:00
+
+As players return to Saudi Arabia for the Saudi Ladies International this week, the tournament's organizers are hoping it can have a more long-lasting impact.
+
+## Former All Black Carl Hayman diagnosed with early onset dementia
+ - [https://www.cnn.com/2021/11/03/sport/carl-hayman-new-zealand-rugby-dementia-spt-intl/index.html](https://www.cnn.com/2021/11/03/sport/carl-hayman-new-zealand-rugby-dementia-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 10:09:30+00:00
+
+Former New Zealand prop Carl Hayman has been diagnosed with early onset dementia at the age of 41, shining the spotlight on concussion-related illness in former rugby players.
+
+## The gleaming metro system built under the desert
+ - [https://www.cnn.com/travel/article/qatar-doha-metro/index.html](https://www.cnn.com/travel/article/qatar-doha-metro/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 10:02:59+00:00
+
+It's fast. It's driverless. It has a Gold Class for premium passengers. And it's one of the most advanced metro train systems ever built.
+
+## Nigeria races to find survivors as 22 die in building collapse
+ - [https://www.cnn.com/2021/11/03/africa/lagos-building-collapse-nigeria-death-toll-intl/index.html](https://www.cnn.com/2021/11/03/africa/lagos-building-collapse-nigeria-death-toll-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 09:50:11+00:00
+
+Rescuers in Nigeria on Wednesday raced to find survivors, two days after a high-rise building under construction collapsed and trapped scores of people in the commercial capital Lagos, as the death toll rose to 22, an emergency official said.
+
+## Yemen's Marib city battens down as Houthis advance through energy-rich province
+ - [https://www.cnn.com/2021/11/03/middleeast/marib-yemen-houthis-intl/index.html](https://www.cnn.com/2021/11/03/middleeast/marib-yemen-houthis-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 09:47:53+00:00
+
+Expecting a possible siege, pro-government forces in central Yemen are preparing to defend Marib city, their last northern stronghold, against advancing Houthi fighters bent on taking full control of one of Yemen's key energy-producing regions.
+
+## Two of Empress Joséphine Bonaparte's tiaras are up for sale
+ - [https://www.cnn.com/style/article/napoleon-josephine-tiaras-sothebys-london-sale/index.html](https://www.cnn.com/style/article/napoleon-josephine-tiaras-sothebys-london-sale/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 09:19:36+00:00
+
+Two tiaras believed to have been owned by Joséphine Bonaparte, the first wife of French Emperor Napoleon, are going on sale after a century and a half in private hands.
+
+## 'Fortnite' is shutting down in China
+ - [https://www.cnn.com/2021/11/03/tech/fortnite-china-shutting-down-intl-hnk/index.html](https://www.cnn.com/2021/11/03/tech/fortnite-china-shutting-down-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 08:39:04+00:00
+
+The Chinese version of hit video game "Fortnite" is shutting down this month.
+
+## CEO of medical glove company arrested in Thailand after CNN investigation
+ - [https://www.cnn.com/2021/11/03/asia/thailand-police-skymed-gloves-intl/index.html](https://www.cnn.com/2021/11/03/asia/thailand-police-skymed-gloves-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-03 07:36:17+00:00
+
+The CEO of a Thai company at the heart of a CNN investigation into fake and used medical gloves has been arrested in Bangkok.
+

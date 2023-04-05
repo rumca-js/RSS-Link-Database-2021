@@ -1,0 +1,9 @@
+# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
+
+## Why Bitcoin is so bad for the planet – video explainer
+ - [https://www.theguardian.com/technology/video/2021/feb/25/why-bitcoin-is-so-bad-for-the-planet-video-explainer](https://www.theguardian.com/technology/video/2021/feb/25/why-bitcoin-is-so-bad-for-the-planet-video-explainer)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2021-02-25 08:22:22+00:00
+
+<p>In a year, bitcoin uses around the same about of electricity as the entire country of Norway.&nbsp;</p><p>The digital currency is one that allows people to bypass banks and traditional payment methods. It is the most prominent among thousands of so-called&nbsp;<a href="https://www.theguardian.com/technology/cryptocurrencies">cryptocurrencies</a>&nbsp;and has been repeatedly reaching new records - but is it sustainable?&nbsp;</p><p>The Guardian's UK technology editor Alex Hern examines how exactly bitcoin uses electricity and if the environmental cost is too high<br /></p><ul><li><a href="https://www.theguardian.com/technology/2021/jan/11/what-bitcoin-why-many-people-buy-cryptocurrency-financial-regulator">What is bitcoin and why are so many people looking to buy it?<br /></a></li><li><a href="https://www.theguardian.com/technology/2021/feb/09/rise-in-popularity-of-cryptocurrencies-in-worlds-conflict-zones">Cryptocurrencies rise in popularity in world's conflict zones</a><br /></li></ul> <a href="https://www.theguardian.com/technology/video/2021/feb/25/why-bitcoin-is-so-bad-for-the-planet-video-explainer">Continue reading...</a>
+

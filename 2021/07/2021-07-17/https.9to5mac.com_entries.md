@@ -1,0 +1,7 @@
+## Apple removes 'Fakespot' app from iOS App Store following Amazon request - 9to5Mac
+ - [https://9to5mac.com/2021/07/16/apple-removes-fakespot-app-from-ios-app-store-following-amazon-request/](https://9to5mac.com/2021/07/16/apple-removes-fakespot-app-from-ios-app-store-following-amazon-request/)
+ - RSS feed: https://9to5mac.com
+ - date published: 2021-07-17 08:04:15.303866+00:00
+
+Apple on Friday removed the Fakespot app from the iOS App Store. Fakespot, which is a service for filtering and hiding fake product reviews on Amazon, launched its iOS app last month, but now, the app has been taken down following a request from Amazon itself. Fakespot founder Saoud Khalifah told The Verge that Apple […]
+

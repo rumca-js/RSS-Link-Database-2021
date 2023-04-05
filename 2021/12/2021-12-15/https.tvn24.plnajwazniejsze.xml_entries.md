@@ -1,0 +1,10 @@
+# Source:TNV24 Najważniejsze, URL:https://tvn24.pl/najwazniejsze.xml, language:pl-PL
+
+## "Rodzaj straszaka. Dyrektorzy, bójcie się!"
+ - [https://tvn24.pl/go/programy,7/czarno-na-bialym-odcinki,11367/odcinek-1766,S00E1766,659036?source_id=bannernewsowy&source=rss](https://tvn24.pl/go/programy,7/czarno-na-bialym-odcinki,11367/odcinek-1766,S00E1766,659036?source_id=bannernewsowy&source=rss)
+ - RSS feed: https://tvn24.pl/najwazniejsze.xml
+ - date published: 2021-12-15 21:44:00+00:00
+
+<img alt="" src="https://tvn24.pl/najnowsze/cdn-zdjecie-67rv2h-szkola-strachu-ok-5527327/alternates/LANDSCAPE_1280" />
+    Artur Zakrzewski pyta, dlaczego tak jest?
+

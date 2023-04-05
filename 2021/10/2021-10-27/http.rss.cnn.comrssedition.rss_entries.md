@@ -1,0 +1,485 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## Tsai Ing-wen confirms US troops are training military on island and says threat from China increasing 'every day'
+ - [https://www.cnn.com/2021/10/27/asia/tsai-ingwen-taiwan-china-interview-intl-hnk/index.html](https://www.cnn.com/2021/10/27/asia/tsai-ingwen-taiwan-china-interview-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 22:45:38+00:00
+
+
+
+## Taiwan's president confirms US troops are training there
+ - [https://www.cnn.com/videos/world/2021/10/27/china-taiwan-president-intv-us-troop-presence-ripley-vpx.cnn](https://www.cnn.com/videos/world/2021/10/27/china-taiwan-president-intv-us-troop-presence-ripley-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 22:41:30+00:00
+
+The leader of Taiwan, the island thrust into the center of rising tensions between the United States and China, said the threat from Beijing is growing "every day," as for the first time she confirmed the presence of American troops on Taiwanese soil. CNN's Will Ripley reports.
+
+## Judge says men that Kyle Rittenhouse shot can't be called 'victims'
+ - [https://www.cnn.com/2021/10/27/us/kyle-rittenhouse-trial-victim-terminology/index.html](https://www.cnn.com/2021/10/27/us/kyle-rittenhouse-trial-victim-terminology/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 22:30:10+00:00
+
+A courtroom debate Monday over the use of terms like "victim" and "arsonist" ahead of the trial Kyle Rittenhouse could foreshadow contentious proceedings when the hearing gets underway for the teen accused in a deadly shooting during protests in Kenosha, Wisconsin.
+
+## These World Heritage Forests have gone from removing carbon from the atmosphere to emitting it
+ - [https://www.cnn.com/2021/10/27/world/unesco-world-heritage-sites-carbon-emissions-climate/index.html](https://www.cnn.com/2021/10/27/world/unesco-world-heritage-sites-carbon-emissions-climate/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 22:29:24+00:00
+
+Human activity and climate change-fueled disasters have turned 10 of the planet's internationally recognized forests, also known as World Heritage sites, from carbon absorbers into carbon emitters, researchers have found.
+
+## Did Ivanka Trump and Jared Kushner crash John McCain's funeral or not?
+ - [https://www.cnn.com/2021/10/27/politics/ivanka-trump-jared-kushner-mccain-funeral/index.html](https://www.cnn.com/2021/10/27/politics/ivanka-trump-jared-kushner-mccain-funeral/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 22:25:41+00:00
+
+There's a bombshell revelation in Meghan McCain's new tell-all memoir regarding her father's funeral and the presence of Ivanka Trump and her husband, Jared Kushner.
+
+## Elon Musk used government money to build Tesla. But he fears a tax on billionaires
+ - [https://www.cnn.com/2021/10/27/politics/billionaire-tax-what-matters/index.html](https://www.cnn.com/2021/10/27/politics/billionaire-tax-what-matters/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 22:21:50+00:00
+
+Think of the billionaire tax as the Tesla solution to Democrats' search for revenue to pay for their expansion of the social safety net ... if only they can convince Sen. Joe Manchin, the West Virginia Democrat.
+
+## China hypersonic test 'very close' to Sputnik moment, top US general says
+ - [https://www.cnn.com/2021/10/27/politics/milley-china-hypersonic-concerning/index.html](https://www.cnn.com/2021/10/27/politics/milley-china-hypersonic-concerning/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 21:48:04+00:00
+
+The top US general said China's test of a hypersonic weapon over the summer was "very concerning" and that "it has all of our attention."
+
+## Mom and her boyfriend face charges after 3 children found abandoned in a Texas apartment with another child's remains
+ - [https://www.cnn.com/2021/10/27/us/abandoned-children-texas-apartment-arrests/index.html](https://www.cnn.com/2021/10/27/us/abandoned-children-texas-apartment-arrests/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 21:47:13+00:00
+
+A Texas mother and her boyfriend have been charged after authorities found three young siblings abandoned in a home along with the decaying body of their brother, police said Tuesday.
+
+## Thousands of dead sea creatures are washing up on UK beaches
+ - [https://www.cnn.com/2021/10/27/europe/environment-dead-sea-creatures-uk-intl/index.html](https://www.cnn.com/2021/10/27/europe/environment-dead-sea-creatures-uk-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 21:22:20+00:00
+
+British environmental watchdogs have launched an investigation after thousands of dead sea creatures washed up on beaches in North East England.
+
+## India, the world's third-biggest emitter of greenhouse gases, rejects net zero emissions target
+ - [https://www.cnn.com/2021/10/27/asia/india-net-zero-target-intl/index.html](https://www.cnn.com/2021/10/27/asia/india-net-zero-target-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 20:52:56+00:00
+
+India on Wednesday rejected calls to announce a net zero carbon emissions target and said it was more important for the world to lay out a pathway to reduce such emissions and avert a dangerous rise in global temperatures.
+
+## Boris Johnson thinks he doesn't need business. It's a huge gamble
+ - [https://www.cnn.com/2021/10/27/business/boris-johnson-business-economy-intl-cmd/index.html](https://www.cnn.com/2021/10/27/business/boris-johnson-business-economy-intl-cmd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 20:00:51+00:00
+
+Boris Johnson's government has just laid out its annual tax and spending plans with a clear central theme: building back better after the pandemic.
+
+## Marjorie Taylor Greene invested as much as $50,000 in the Trump SPAC before its stock plunged
+ - [https://www.cnn.com/2021/10/27/investing/trump-spac-dwac-marjorie-taylor-greene/index.html](https://www.cnn.com/2021/10/27/investing/trump-spac-dwac-marjorie-taylor-greene/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 18:54:57+00:00
+
+Georgia Rep. Marjorie Taylor Greene bought as much as $50,000 worth of shares in a shell company that is merging with former President Donald Trump's new media venture, according to a financial disclosure form.
+
+## Lead armorer 'mishandled' guns on previous film with Nicolas Cage, crew members say
+ - [https://www.cnn.com/collections/intl-rust-2710/](https://www.cnn.com/collections/intl-rust-2710/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 18:54:00+00:00
+
+
+
+## Strikingly intact mummies found buried in boats in a desert have unexpected origins
+ - [https://www.cnn.com/2021/10/27/asia/mummies-tarim-basin-china-scn/index.html](https://www.cnn.com/2021/10/27/asia/mummies-tarim-basin-china-scn/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 18:25:54+00:00
+
+Since their discovery, the ancestry of hundreds of mummified bodies buried in boats in an inhospitable desert region of northwest China has puzzled and divided archaeologists.
+
+## 'Squid Game' creator responds to LeBron James disliking the show's end
+ - [https://www.cnn.com/2021/10/27/entertainment/squid-game-lebron-james/index.html](https://www.cnn.com/2021/10/27/entertainment/squid-game-lebron-james/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 18:11:59+00:00
+
+Count LeBron James among those caught up in "Squid Game."
+
+## Iran agrees to resume nuclear talks before the end of November
+ - [https://www.cnn.com/2021/10/27/middleeast/iran-nuclear-talks-resume-intl/index.html](https://www.cnn.com/2021/10/27/middleeast/iran-nuclear-talks-resume-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 17:40:38+00:00
+
+Iran has agreed to resume crucial nuclear talks "before the end of November," the country's chief nuclear negotiator Ali Bagheri Kani said in a tweet on Wednesday.
+
+## EU's top court fines Poland 1 million euros per day over judiciary spat
+ - [https://www.cnn.com/2021/10/27/europe/poland-eu-fine-supreme-court-intl/index.html](https://www.cnn.com/2021/10/27/europe/poland-eu-fine-supreme-court-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 17:11:18+00:00
+
+The European Union's top court has ordered Poland to pay a daily fine of €1 million ($1.2 million) for failing to suspend a disciplinary chamber for judges that the bloc says breaches EU law, in yet another escalation of the conflict between Warsaw and Brussels.
+
+## Facebook says it's facing 'government investigations' related to whistleblower documents
+ - [https://www.cnn.com/collections/intl-facebook-1027/](https://www.cnn.com/collections/intl-facebook-1027/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 16:57:44+00:00
+
+
+
+## Jonas Brothers to be roasted in Netflix comedy special
+ - [https://www.cnn.com/2021/10/27/entertainment/jonas-brothers-roast-netflix/index.html](https://www.cnn.com/2021/10/27/entertainment/jonas-brothers-roast-netflix/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 16:52:37+00:00
+
+The Jonas Brothers are set to get roasted.
+
+## 'Completely damning' video of Trump ally emerges
+ - [https://www.cnn.com/videos/politics/2021/10/27/john-eastman-video-pence-2020-election-results-honig-nr-vpx.cnn](https://www.cnn.com/videos/politics/2021/10/27/john-eastman-video-pence-2020-election-results-honig-nr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 15:38:03+00:00
+
+A video captured by a Democratic activist shows conservative lawyer John Eastman, who had worked with then-President Donald Trump's legal team, criticizing former Vice President Mike Pence for not overturning the 2020 election results. CNN legal analyst Ellie Honig discusses.
+
+## US State Department issues first passport with X gender marker
+ - [https://www.cnn.com/2021/10/27/politics/state-department-passport-gender/index.html](https://www.cnn.com/2021/10/27/politics/state-department-passport-gender/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 15:07:14+00:00
+
+The State Department has issued the first US passport with an "X" gender marker as it seeks to implement gender-inclusive polices, the department announced Wednesday.
+
+## 'Shakespeare in Love' playwright Tom Stoppard said 'Leopoldstadt' would be his last play -- now he's not so sure
+ - [https://www.cnn.com/style/article/tom-stoppard-playwright-interview-amanpour/index.html](https://www.cnn.com/style/article/tom-stoppard-playwright-interview-amanpour/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 14:38:08+00:00
+
+Legendary playwright Tom Stoppard has said that he remains unsure as to whether he has written his last work.
+
+## Shiba inu coin price hits a new record as Robinhood petition gains popularity
+ - [https://www.cnn.com/collections/intl-robinhood-1027/](https://www.cnn.com/collections/intl-robinhood-1027/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 14:33:42+00:00
+
+
+
+## Australian pro footballer Josh Cavallo announces he is gay
+ - [https://www.cnn.com/2021/10/27/football/footballer-josh-cavallo-announces-he-is-gay-spt-intl/index.html](https://www.cnn.com/2021/10/27/football/footballer-josh-cavallo-announces-he-is-gay-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 14:20:18+00:00
+
+Australian professional footballer Josh Cavallo announced on Wednesday that he is gay in a video message released by his A-League club Adelaide United.
+
+## 'This is not a corner you cut': Cinematographer slams procedure on 'Rust' set
+ - [https://www.cnn.com/videos/entertainment/2021/10/27/rachel-morrison-cinematographer-baldwin-rust-safety-on-set-newday-vpx.cnn](https://www.cnn.com/videos/entertainment/2021/10/27/rachel-morrison-cinematographer-baldwin-rust-safety-on-set-newday-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 14:17:22+00:00
+
+Rachel Morrison, an Academy award-nominated cinematographer, talks with CNN's Brianna Keilar about protocols in place for guns on movie sets and what she thinks should have been done differently on the set of the Alec Baldwin movie 'Rust.'
+
+## Author who inspired 'The Social Network' says Facebook may not be our friend
+ - [https://www.cnn.com/videos/business/2021/10/27/ben-mezrich-mark-zuckerberg-the-social-network-facebook-newday-vpx.cnn](https://www.cnn.com/videos/business/2021/10/27/ben-mezrich-mark-zuckerberg-the-social-network-facebook-newday-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 13:55:14+00:00
+
+Ben Mezrich, author of "The Accidental Billionaires," which was made into the 2010 film "The Social Network" speaks to CNN's Brianna Keilar about Mark Zuckerberg and the current turmoil at Facebook.
+
+## Jeep crashes and then tips over in test drive
+ - [https://www.cnn.com/videos/business/2020/05/08/jeep-wrangler-crash-test-orig.cnn-business](https://www.cnn.com/videos/business/2020/05/08/jeep-wrangler-crash-test-orig.cnn-business)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 13:44:25+00:00
+
+In a random audit, the Insurance Institute for Highway Safety conducted a driver-side small overlap front crash test for the 2019 Jeep Wrangler. This is the first time a vehicle has tipped over in an IIHS crash test.
+
+## Storm dumps one year's worth of rain in two days in southern Italy
+ - [https://www.cnn.com/2021/10/27/europe/catania-sicily-italy-floods-medicane-intl/index.html](https://www.cnn.com/2021/10/27/europe/catania-sicily-italy-floods-medicane-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 13:42:03+00:00
+
+Southern Italy is bracing for two more days of devastating rain and flash flooding, as a 'medicane' storm that has deluged streets continues to barrel through the region.
+
+## Megan Thee Stallion celebrating college graduation
+ - [https://www.cnn.com/2021/10/27/entertainment/megan-stallion-college-graduation/index.html](https://www.cnn.com/2021/10/27/entertainment/megan-stallion-college-graduation/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 13:25:46+00:00
+
+Megan Thee Stallion is looking forward to her forthcoming college graduation.
+
+## 100 days to the Winter Olympics: Lindsey Vonn on mental health, retirement and fashion
+ - [https://www.cnn.com/2021/10/27/sport/lindsey-vonn-winter-olympics-mental-health-spt-intl/index.html](https://www.cnn.com/2021/10/27/sport/lindsey-vonn-winter-olympics-mental-health-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 13:18:39+00:00
+
+Retiring as the greatest female ski racer of all time, Lindsey Vonn made a living out of her downhill speed, but away from the slopes, she was fighting uphill battles.
+
+## 'We live in fear:' Daughter of former Saudi official says kingdom attempted to lure her to consulate in Istanbul
+ - [https://www.cnn.com/2021/10/27/middleeast/hissah-al-muzaini-saudi-consulate-amanpour-intl/index.html](https://www.cnn.com/2021/10/27/middleeast/hissah-al-muzaini-saudi-consulate-amanpour-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 12:11:12+00:00
+
+The daughter of a former top Saudi intelligence official has told CNN that representatives of the Saudi government attempted to lure her to the same consulate where Jamal Khashoggi was murdered in Istanbul, as part of a series of threats against her and her family.
+
+## Early Facebook investor blames major advertisers for 'turning a blind eye' to Facebook's problems
+ - [https://www.cnn.com/2021/10/27/tech/facebook-zuckerberg-advertising/index.html](https://www.cnn.com/2021/10/27/tech/facebook-zuckerberg-advertising/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 11:33:14+00:00
+
+Venture capitalist Roger McNamee says Corporate America shares blame for the troubles that exist today at Facebook.
+
+## Brazilian commission votes in favor of recommending criminal charges against Bolsonaro
+ - [https://www.cnn.com/2021/10/26/americas/brazil-bolsonaro-covid-cpi-vote-intl-latam/index.html](https://www.cnn.com/2021/10/26/americas/brazil-bolsonaro-covid-cpi-vote-intl-latam/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 11:32:31+00:00
+
+A Brazilian commission investigating the government's handling of the Covid-19 pandemic has voted in favor of charges against President Jair Bolsonaro, among others.
+
+## Trump's 2020 fantasy is already influencing 2022
+ - [https://www.cnn.com/2021/10/27/politics/voting-rights-what-matters/index.html](https://www.cnn.com/2021/10/27/politics/voting-rights-what-matters/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 11:12:49+00:00
+
+There are multiple major developments on stories we've spent a lot of time covering in What Matters.
+
+## What does COP stand for? And your other burning questions answered
+ - [https://www.cnn.com/videos/world/2021/10/26/cop26-glasgow-explainer-lon-orig.cnn](https://www.cnn.com/videos/world/2021/10/26/cop26-glasgow-explainer-lon-orig.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 11:12:04+00:00
+
+World leaders are gathering for a crucial climate summit known as COP26 in Glasgow, UK. COP stands for the "Conference of the Parties," and, organized by the United Nations, there have been 25 of them since the first in 1995. Some have been productive, others bitterly disappointing. Here's what you need to know.
+
+## Elizabeth Holmes trial hit by new concern: losing too many jurors
+ - [https://www.cnn.com/2021/10/27/tech/elizabeth-holmes-trial-jury/index.html](https://www.cnn.com/2021/10/27/tech/elizabeth-holmes-trial-jury/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 11:08:28+00:00
+
+The high-profile trial of Theranos founder Elizabeth Holmes was delayed multiple times before kicking off last month. Now there are questions about whether there will be enough jurors to get through the second half of the trial.
+
+## Why a 7-foot tall Harambe statue popped up outside Facebook headquarters
+ - [https://www.cnn.com/style/article/harambe-statue-facebook-wall-street/index.html](https://www.cnn.com/style/article/harambe-statue-facebook-wall-street/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 11:04:30+00:00
+
+A gigantic bronze statue of Harambe, a gorilla that was shot dead at the Cincinnati Zoo in 2016, was installed on Tuesday in front of Facebook's headquarters in California before it was quickly removed. The 7-foot tall installation was accompanied by 10,000 bananas, which were laid at the foot of the company's blue logo.
+
+## Here's why Joe Biden's economy is heading in the wrong direction
+ - [https://www.cnn.com/2021/10/27/economy/us-q3-gdp-preview/index.html](https://www.cnn.com/2021/10/27/economy/us-q3-gdp-preview/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 10:56:30+00:00
+
+From supply chain chaos to worker shortages, America's economic recovery ran into some serious challenges in the third quarter of the year.
+
+## Rob McElhenney and Ryan Reynolds attend first Wrexham match since becoming club's co-owners
+ - [https://www.cnn.com/2021/10/27/football/rob-mcelhenney-ryan-reynolds-attend-first-wrexham-match-spt-intl/index.html](https://www.cnn.com/2021/10/27/football/rob-mcelhenney-ryan-reynolds-attend-first-wrexham-match-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 10:47:28+00:00
+
+The quiet English town of Maidenhead wouldn't rank very highly on a list of places you would expect to see Hollywood superstars.
+
+## Queen Elizabeth II will skip COP26 entirely, days after overnight hospital stay
+ - [https://www.cnn.com/collections/intl-climate-1027/](https://www.cnn.com/collections/intl-climate-1027/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 10:45:31+00:00
+
+
+
+## The secret first-class seats offered by airlines
+ - [https://www.cnn.com/travel/article/secret-first-class-seats-cmd/index.html](https://www.cnn.com/travel/article/secret-first-class-seats-cmd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 10:38:58+00:00
+
+International first class suites -- the kind of double-bed-in-the-sky experiences that have been the stuff of travel dreams for decades -- have been on the way out for a while now.
+
+## Democrats fight back as Republicans target education
+ - [https://www.cnn.com/2021/10/27/politics/republicans-education-suburbs-democrats-virginia-governor-race/index.html](https://www.cnn.com/2021/10/27/politics/republicans-education-suburbs-democrats-virginia-governor-race/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 10:38:20+00:00
+
+America's freshest and most emotive political battle is now raging over its schools as kids and teachers get drawn into the cultural and ideological fights dominating national and local politics.
+
+## Shiba inu coin price hits a new record as Robinhood petition gains popularity
+ - [https://www.cnn.com/2021/10/27/investing/shiba-inu-coin-price-record-robinhood-hnk-intl/index.html](https://www.cnn.com/2021/10/27/investing/shiba-inu-coin-price-record-robinhood-hnk-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 10:26:21+00:00
+
+Shiba inu coin soared to a new record on Wednesday, capping a surge of over 60,000,000% over the past year.
+
+## Fan who gave historic 600th touchdown ball to Tom Brady asks for a round of golf in return
+ - [https://www.cnn.com/2021/10/27/golf/tom-brady-golf-600-touchdown-ball-spt-intl/index.html](https://www.cnn.com/2021/10/27/golf/tom-brady-golf-600-touchdown-ball-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 10:08:19+00:00
+
+For Byron Kennedy, Sunday was more than just an NFL game.
+
+## US has few good options if China seizes islands close to Taiwan, war game concludes
+ - [https://www.cnn.com/2021/10/26/politics/us-taiwan-war-game/index.html](https://www.cnn.com/2021/10/26/politics/us-taiwan-war-game/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 10:06:37+00:00
+
+If China were to seize one of Taiwan's outlying islands, the US would have few good options to respond without risking a major escalation and a war between the superpowers, according to the conclusions from a recent war game conducted by foreign policy and defense experts.
+
+## NFL commissioner Roger Goodell remains steadfast on not releasing more from Washington Football Team investigation
+ - [https://www.cnn.com/2021/10/27/sport/roger-goodell-nfl-wft-investigation-spt-intl/index.html](https://www.cnn.com/2021/10/27/sport/roger-goodell-nfl-wft-investigation-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 10:01:04+00:00
+
+NFL commissioner Roger Goodell has doubled-down on his stance to not release more information from the Washington Football Team (WFT) investigation.
+
+## $547 million Villa with world's only Caravaggio ceiling mural goes on sale
+ - [https://www.cnn.com/style/article/rome-villa-aurora-caravaggio-mural-intl-scli/index.html](https://www.cnn.com/style/article/rome-villa-aurora-caravaggio-mural-intl-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 09:47:09+00:00
+
+A stately villa in the heart of Rome, which houses the world's only ceiling mural by the Italian painter Caravaggio, will be auctioned at a starting price of 471 million euros ($547 million) in January, a court in Rome has confirmed.
+
+## German dogs to sniff out wildlife at building sites to speed up work
+ - [https://www.cnn.com/2021/10/27/europe/sniffer-dogs-germany-rail-intl-scli-scn/index.html](https://www.cnn.com/2021/10/27/europe/sniffer-dogs-germany-rail-intl-scli-scn/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 09:44:35+00:00
+
+Sniffer dogs are being trained by Germany's Deutsche Bahn (DB) to find protected wildlife at planned major building sites to speed up projects, the railway group said on Tuesday.
+
+## Life after Mo Salah? 17-year-old Liverpool prodigy Kaide Gordon tipped for Premier League stardom
+ - [https://www.cnn.com/2021/10/27/football/kaide-gordon-liverpool-premier-league-spt-intl/index.html](https://www.cnn.com/2021/10/27/football/kaide-gordon-liverpool-premier-league-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 09:39:26+00:00
+
+With Mohamed Salah yet to sign a new contract, Liverpool fans could be forgiven for casting a fearful thought about what life after the 'Egyptian King' might look like. Yet Anfield may have an heir to the throne ready in waiting -- all rise for Kaide Gordon.
+
+## US government bans China Telecom from operating in the country
+ - [https://www.cnn.com/2021/10/27/business/china-telecom-fcc-license-intl-hnk/index.html](https://www.cnn.com/2021/10/27/business/china-telecom-fcc-license-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 09:34:38+00:00
+
+Washington is barring a major Chinese state-owned telecommunications firm from operating in the United States over national security concerns — an action that threatens to once again increase tensions between the world's two largest economies.
+
+## Jorge Soler hits historic World Series home run as Atlanta Braves beat Houston Astros in Game 1
+ - [https://www.cnn.com/2021/10/27/sport/jorge-soler-game-1-world-series-spt-intl/index.html](https://www.cnn.com/2021/10/27/sport/jorge-soler-game-1-world-series-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 09:22:01+00:00
+
+Jorge Soler knows how to make an impact right from the start.
+
+## Adele to play first concerts in five years with London Hyde Park shows
+ - [https://www.cnn.com/2021/10/27/entertainment/adele-london-hyde-park-intl-scli-gbr/index.html](https://www.cnn.com/2021/10/27/entertainment/adele-london-hyde-park-intl-scli-gbr/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 09:16:33+00:00
+
+Music superstar Adele said on Tuesday she will play two concerts at London's Hyde Park next summer, her first in five years, an announcement British media said caused her website to crash as fans rushed to register for a ticket pre-sale.
+
+## With 100 days until the Winter Olympics, Beijing races to control growing Covid outbreak
+ - [https://www.cnn.com/collections/intl-covid-1027/](https://www.cnn.com/collections/intl-covid-1027/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 09:06:55+00:00
+
+
+
+## Get to know farro and other superfood whole grains
+ - [https://www.cnn.com/2021/10/27/health/whole-grains-list-wellness/index.html](https://www.cnn.com/2021/10/27/health/whole-grains-list-wellness/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 08:50:28+00:00
+
+Quinoa has reached a level of superfood status not seen since the great kale takeover of the aughts. Equally embraced and mocked in pop culture, it's become the symbol of the grain bowl generation. It's not the only whole grain that's worth bringing to the table, however.
+
+## A decades-old cold case of abandoned infant remains has been solved using DNA evidence. Now a North Carolina couple is charged with a felony
+ - [https://www.cnn.com/2021/10/27/us/north-carolina-couple-charged-infant-remains/index.html](https://www.cnn.com/2021/10/27/us/north-carolina-couple-charged-infant-remains/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 07:48:19+00:00
+
+Three decades after infant remains were found in a North Carolina beach town, police say they have arrested and charged a couple based on new DNA evidence.
+
+## Recent headlines reveal the two truths about social media
+ - [https://www.cnn.com/collections/intl-social-media-1027/](https://www.cnn.com/collections/intl-social-media-1027/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 07:25:16+00:00
+
+
+
+## How the fatal 'Rust' shooting unfolded, moment by moment
+ - [https://www.cnn.com/collections/rust-shooting-intl-10-27/](https://www.cnn.com/collections/rust-shooting-intl-10-27/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 07:12:43+00:00
+
+
+
+## Animation shows possible location of first planet found outside our galaxy
+ - [https://www.cnn.com/videos/world/2021/10/27/planet-found-in-whirlpool-galaxy-nobilo-tgb-intl-hnk-vpx.cnn](https://www.cnn.com/videos/world/2021/10/27/planet-found-in-whirlpool-galaxy-nobilo-tgb-intl-hnk-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 07:09:40+00:00
+
+Scientists may have detected signs of a planet transiting a star outside of the Milky Way, in what could be the first planet ever to be discovered outside our galaxy. CNN's Bianca Nobilo has more.
+
+## California police officer convicted of firearm assault in 2018 death of a Black man, but jury deadlocked on manslaughter charge
+ - [https://www.cnn.com/2021/10/27/us/ca-officer-shooting-mistrial/index.html](https://www.cnn.com/2021/10/27/us/ca-officer-shooting-mistrial/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 06:47:05+00:00
+
+A California police officer was convicted Tuesday of assault with a firearm, but the jury did not reach a verdict over a voluntary manslaughter charge in the 2018 killing of a 32-year-old Black man who was shot nine times during a low-speed chase.
+
+## District attorney hasn't ruled out criminal charges in fatal shooting
+ - [https://www.cnn.com/2021/10/26/entertainment/alec-baldwin-rust-shooting-tuesday/index.html](https://www.cnn.com/2021/10/26/entertainment/alec-baldwin-rust-shooting-tuesday/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 05:47:42+00:00
+
+Crew members on the set of "Rust" used guns with live ammunition and engaged in a pastime called "plinking" hours before Halyna Hutchins was killed, founder and CEO of The Wrap, Sharon Waxman, told CNN's Don Lemon Monday night, citing information from an individual with knowledge of the set.
+
+## Myanmar's Aung San Suu Kyi testifies in court
+ - [https://www.cnn.com/2021/10/27/asia/suu-kyi-testifies-court-myanmar-intl-hnk/index.html](https://www.cnn.com/2021/10/27/asia/suu-kyi-testifies-court-myanmar-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 04:23:51+00:00
+
+Myanmar's ousted civilian leader Aung San Suu Kyi testified in court on Tuesday for the first time since she was overthrown in a military coup.
+
+## A top NYPD official says there was no coverup in the investigation of officers who arrested Eric Garner
+ - [https://www.cnn.com/2021/10/27/us/eric-garner-nypd-official-testimony/index.html](https://www.cnn.com/2021/10/27/us/eric-garner-nypd-official-testimony/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 04:03:07+00:00
+
+A top-ranking New York Police Department official testified during a judicial inquiry on Tuesday there was "no coverup" in the internal investigation into officers who were on scene when Eric Garner was killed while in police custody but he questioned why Garner was charged with a felony for having five packs of cigarettes.
+
+## Small SUVs struggle in new crash test
+ - [https://www.cnn.com/2021/10/27/cars/iihs-small-suvs-side-crash-test-ratings/index.html](https://www.cnn.com/2021/10/27/cars/iihs-small-suvs-side-crash-test-ratings/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 04:01:13+00:00
+
+Several small SUVs struggled in a new side crash test conducted by the Insurance Institute for Highway Safety, with just one out of the 20 vehicles tested earning the agency's highest rating.
+
+## Game show contestant's Homer Simpson blunder goes viral
+ - [https://www.cnn.com/videos/media/2021/10/27/homer-simpson-game-show-blunder-tipping-point-moos-pkg-vpx.cnn](https://www.cnn.com/videos/media/2021/10/27/homer-simpson-game-show-blunder-tipping-point-moos-pkg-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 03:30:54+00:00
+
+Game show contestant's Homer Simpson fail goes viral. CNN's Jeanne Moos has the "D'oh" moment.
+
+## Estate of deceased Alex Murdaugh housekeeper reaches settlement with his former law firm
+ - [https://www.cnn.com/2021/10/26/us/alex-murdaugh-housekeeper-settlement-law-firm/index.html](https://www.cnn.com/2021/10/26/us/alex-murdaugh-housekeeper-settlement-law-firm/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 02:52:24+00:00
+
+Attorneys for the estate of Gloria Satterfield, who spent more than two decades as the family housekeeper for embattled South Carolina lawyer Alex Murdaugh, say they've reached a settlement with his former law firm.
+
+## Hear how Marjorie Taylor Greene describes events of Jan. 6
+ - [https://www.cnn.com/videos/politics/2021/10/27/marjorie-taylor-greene-jan-6-comments-dons-take-dlt-vpx.cnn](https://www.cnn.com/videos/politics/2021/10/27/marjorie-taylor-greene-jan-6-comments-dons-take-dlt-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 02:38:16+00:00
+
+CNN's Don Lemon reacts to GOP Rep. Marjorie Taylor Greene's attempt to minimize the events of January 6 by saying it was "just a riot at the Capitol."
+
+## Jason Sudeikis pokes fun at 'Ted Lasso' success in 'SNL' monologue
+ - [https://www.cnn.com/videos/media/2021/10/24/snl-sudeikis-mono-orig.cnn](https://www.cnn.com/videos/media/2021/10/24/snl-sudeikis-mono-orig.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 02:17:55+00:00
+
+SNL alumnus Jason Sudeikis returned to Studio H to host "Saturday Night Live," and looked back on what the show meant to him.
+
+## Electric robots are mapping the seafloor, Earth's last frontier
+ - [https://www.cnn.com/2021/10/26/tech/seatrec-bedrock-robot-seabed-mapping-climate-spc-hnk/index.html](https://www.cnn.com/2021/10/26/tech/seatrec-bedrock-robot-seabed-mapping-climate-spc-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 01:37:49+00:00
+
+For centuries, humans have explored the Earth's mountains, jungles and deserts. But despite covering more than 70% of the Earth's surface, the ocean is still a relative mystery. In fact, we know more about the surface of Mars than we do about the sea floor; just over 20% of the ocean bed has been mapped.
+
+## NYT journalist explains why she thinks Zuckerberg will no longer be Facebook CEO
+ - [https://www.cnn.com/videos/media/2021/10/26/nyt-kara-swisher-zuckerberg-facebook-ceo-ac360-intv-vpx.cnn](https://www.cnn.com/videos/media/2021/10/26/nyt-kara-swisher-zuckerberg-facebook-ceo-ac360-intv-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-10-27 01:22:07+00:00
+
+New York Times journalist Kara Swisher and CNN's Anderson Cooper discuss Facebook CEO Mark Zuckerberg and his future at the company.
+

@@ -1,0 +1,233 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## Un-bearably cute cubs become besties at Detroit zoo
+ - [https://www.cnn.com/videos/us/2021/09/29/acfc-detroit-zoo-bears-the-goods-sot-vpx.cnn](https://www.cnn.com/videos/us/2021/09/29/acfc-detroit-zoo-bears-the-goods-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 22:53:26+00:00
+
+Anderson Cooper learns about two orphan bears who have become buddies at the Detroit Zoo. Watch Anderson Cooper Full Circle on Monday, Wednesday and Friday at 6pm E.T.
+
+## Stars line the red carpet for long-awaited James Bond premiere
+ - [https://www.cnn.com/collections/intl-james-bond-0929/](https://www.cnn.com/collections/intl-james-bond-0929/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 21:54:22+00:00
+
+
+
+## This is the senator at the center of Democratic negotiations
+ - [https://www.cnn.com/videos/politics/2021/09/29/krysten-sinema-history-serfaty-dnt-lead-vpx.cnn](https://www.cnn.com/videos/politics/2021/09/29/krysten-sinema-history-serfaty-dnt-lead-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 21:53:55+00:00
+
+CNN's Sunlen Serfaty takes a closer look at Sen. Krysten Sinema (D-AZ), who is at the center of negotiations over President Joe Biden's agenda.
+
+## Bacon prices have skyrocketed to record levels, and they might not go down anytime soon
+ - [https://www.cnn.com/2021/09/29/economy/bacon-prices-skyrocketing-pork/index.html](https://www.cnn.com/2021/09/29/economy/bacon-prices-skyrocketing-pork/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 20:36:25+00:00
+
+Bacon is more expensive for Americans than it has been in the past 40 years.
+
+## Unvaccinated players who miss games won't get paid, NBA says
+ - [https://www.cnn.com/2021/09/29/sport/nba-unvaccinated-players-salary-spt-cec/index.html](https://www.cnn.com/2021/09/29/sport/nba-unvaccinated-players-salary-spt-cec/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 19:30:40+00:00
+
+For months, NBA stars and executives have pushed for every player to get vaccinated. Though 90% of the league is vaccinated, according to a CNN source, there are still a few holdouts -- and it could cost them.
+
+## Netflix CEO: This might be our 'biggest show ever'
+ - [https://www.cnn.com/videos/business/2021/09/29/squid-game-netflix-orig.cnn-business](https://www.cnn.com/videos/business/2021/09/29/squid-game-netflix-orig.cnn-business)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 17:59:44+00:00
+
+Korean fictional drama "Squid Game" has captivated audiences worldwide, making it the number one show on Netflix.
+
+## Britney Spears returns to court in conservatorship case
+ - [https://www.cnn.com/2021/09/29/entertainment/what-to-expect-from-the-britney-spears-hearing/index.html](https://www.cnn.com/2021/09/29/entertainment/what-to-expect-from-the-britney-spears-hearing/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 17:36:36+00:00
+
+The fight over Britney Spears' 13-year conservatorship returns to court in Los Angeles on Wednesday.
+
+## YouTube is cracking down on anti-vaccine misinformation
+ - [https://www.cnn.com/2021/09/29/tech/youtube-vaccine-misinformation/index.html](https://www.cnn.com/2021/09/29/tech/youtube-vaccine-misinformation/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 16:51:26+00:00
+
+YouTube will remove videos spreading misinformation about any approved vaccine, not only those aimed at preventing Covid-19, the company announced in a blog post Wednesday.
+
+## CNN's Brianna Keilar has learned a lot about pain
+ - [https://www.cnn.com/videos/us/2021/09/28/brianna-keilar-fibromyalgia-cfc-orig-ch.cnn](https://www.cnn.com/videos/us/2021/09/28/brianna-keilar-fibromyalgia-cfc-orig-ch.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 16:17:07+00:00
+
+The "New Day" anchor was diagnosed with fibromyalgia as a kid and spent years seeing doctors for her pain before realizing she had to take some control back for herself.
+
+## More than 100 Americans evacuated from Afghanistan on private charter, organizations say
+ - [https://www.cnn.com/2021/09/28/politics/americans-evacuated-afghanistan-tuesday/index.html](https://www.cnn.com/2021/09/28/politics/americans-evacuated-afghanistan-tuesday/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 15:59:41+00:00
+
+More than 100 US citizens and green card holders and nine special immigrant visa holders were evacuated from Afghanistan via a private charter flight on Tuesday, according to two organizations involved in the effort.
+
+## Sarah Everard's murderer kidnapped her using police ID and handcuffs
+ - [https://www.cnn.com/2021/09/29/uk/uk-sarah-everard-murder-sentencing-intl-gbr/index.html](https://www.cnn.com/2021/09/29/uk/uk-sarah-everard-murder-sentencing-intl-gbr/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 15:55:44+00:00
+
+Wayne Couzens, the former police officer who has admitted to the kidnap, rape and murder of Sarah Everard, used a police ID and handcuffs to deceive her into getting into his car, prosecutors said Wednesday at a London sentencing hearing.
+
+## Michael Fassbender surprises students at his old high school with acting class
+ - [https://www.cnn.com/2021/09/29/entertainment/michael-fassbender-acting-class-intl-scli/index.html](https://www.cnn.com/2021/09/29/entertainment/michael-fassbender-acting-class-intl-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 14:30:52+00:00
+
+Hollywood star Michael Fassbender made a surprise visit to his old high school in Ireland, to teach an acting class to students.
+
+## Fact Check: Military testimony on Afghanistan appears to contradict Biden's previous statements on troop levels
+ - [https://www.cnn.com/2021/09/28/politics/afghanistan-biden-testimony-contradiction-fact-check/index.html](https://www.cnn.com/2021/09/28/politics/afghanistan-biden-testimony-contradiction-fact-check/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 14:08:26+00:00
+
+During a Senate hearing on Tuesday over the frenzied US withdrawal from Afghanistan, top generals seemingly contradicted earlier claims from President Joe Biden on the administration's plan to remove troops.
+
+## CNN will no longer publish content on Facebook in Australia
+ - [https://www.cnn.com/2021/09/29/media/cnn-facebook-pages-australia-intl-hnk/index.html](https://www.cnn.com/2021/09/29/media/cnn-facebook-pages-australia-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 13:59:17+00:00
+
+CNN says it will no longer publish content to Facebook in Australia. The decision comes after the country's highest court ruled that media companies are liable for comments people post under articles on the platform.
+
+## Protesters march in region known for some of the world's strictest anti-abortion laws
+ - [https://www.cnn.com/2021/09/29/americas/latin-american-abortion-rights-protests-intl/index.html](https://www.cnn.com/2021/09/29/americas/latin-american-abortion-rights-protests-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 12:49:34+00:00
+
+Thousands marched for abortion rights across Latin America on Tuesday, holding placards and banners that read "It is my right to decide" and "legal abortion for health and life," as they demanded reproductive freedoms in a region known for some of the world's strictest anti-abortion laws.
+
+## 'Squid Game': What it is and why you will be obsessed with it
+ - [https://www.cnn.com/2021/09/29/entertainment/squid-game-netflix/index.html](https://www.cnn.com/2021/09/29/entertainment/squid-game-netflix/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 12:28:34+00:00
+
+Netflix's latest hit really kills.
+
+## 'Why do you run to the f*cking hospital?': Man vents about unvaccinated after wife dies
+ - [https://www.cnn.com/videos/us/2021/09/28/jason-arena-tiktok-wife-cancer-covid-19-hospital-eg-orig.cnn](https://www.cnn.com/videos/us/2021/09/28/jason-arena-tiktok-wife-cancer-covid-19-hospital-eg-orig.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 11:58:22+00:00
+
+Jason Arena's wife Marilyn battled cancer for years. He vented his frustration on TikTok after she was discharged early from a hospital stay over an influx of Covid-19 patients. Marilyn passed away a month after she left the hospital.
+
+## Tunisia's president appoints woman as prime minister in first for Arab world
+ - [https://www.cnn.com/2021/09/29/africa/tunisia-prime-minister-najla-bouden-romdhane-intl/index.html](https://www.cnn.com/2021/09/29/africa/tunisia-prime-minister-najla-bouden-romdhane-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 11:51:27+00:00
+
+Tunisia's president has tasked Najla Bouden Romdhane with forming the country's next government, making her the first woman to hold the post of prime minister in the Arab world.
+
+## The Black designers placing identity and heritage at the center of their brands
+ - [https://www.cnn.com/style/article/black-fashion-communities-september-issues/index.html](https://www.cnn.com/style/article/black-fashion-communities-september-issues/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 11:43:06+00:00
+
+At 77, Daniel Day has plenty to be proud of. During the 1980s and early '90s, the designer became an early icon of high-end streetwear , designing custom pieces for hustlers, athletes, and rappers from his now legendary Harlem shop, Dapper Dan's Boutique, in New York. His use of furs, leathers, and fine fabrics screamed status for a new type of monied shopper. But the real draw was Day's inventive and illicit incorporation of luxury logos, screen-printed onto the kind of fashion that none of the European houses were yet in the business of producing themselves.
+
+## 'A miracle': Sheriff Tiraspol stuns Real Madrid in one of the Champions League's greatest upsets
+ - [https://www.cnn.com/2021/09/29/football/sheriff-tiraspol-stuns-real-madrid-champions-league-spt-intl/index.html](https://www.cnn.com/2021/09/29/football/sheriff-tiraspol-stuns-real-madrid-champions-league-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 11:33:08+00:00
+
+Sheriff Tiraspol produced one of the greatest upsets in Champions League history on Tuesday, defeating 13-time winner Real Madrid in its own back yard.
+
+## China has built a 5,000-room quarantine center for overseas arrivals. It could be the first of many
+ - [https://www.cnn.com/2021/09/29/china/guangzhou-covid-quarantine-center-mic-intl-hnk/index.html](https://www.cnn.com/2021/09/29/china/guangzhou-covid-quarantine-center-mic-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 10:55:32+00:00
+
+When it comes to keeping Covid-19 at bay, few countries seem willing to go as far as China.
+
+## What to do in Dubai if you're visiting for Expo 2020
+ - [https://www.cnn.com/travel/article/expo-2020-dubai-travel-guide-spc-intl/index.html](https://www.cnn.com/travel/article/expo-2020-dubai-travel-guide-spc-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 09:54:52+00:00
+
+Delayed a year by the pandemic, Expo 2020 is finally upon us.
+
+## What happens after Olympic glory? For diver Matty Lee, a return to 'gruesome' preseason training
+ - [https://www.cnn.com/2021/09/29/sport/matty-lee-diving-tokyo-olympics-spt-intl/index.html](https://www.cnn.com/2021/09/29/sport/matty-lee-diving-tokyo-olympics-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 09:51:27+00:00
+
+Eight weeks since he won Olympic gold with a somersaulting dive in Tokyo, Matty Lee's life is moving at a more sedate pace.
+
+## Fumio Kishida expected to become Japan's next Prime Minister after winning leadership election
+ - [https://www.cnn.com/2021/09/29/asia/japan-leadership-election-kishida-intl-hnk/index.html](https://www.cnn.com/2021/09/29/asia/japan-leadership-election-kishida-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 09:33:23+00:00
+
+Japan's ruling Liberal Democratic Party (LDP) elected former top diplomat Fumio Kishida as its new leader on Wednesday after a tightly contested race that ended in a runoff vote -- clearing a path for him to become the country's next Prime Minister.
+
+## 'Horned crocodile-faced hell heron' is one of two new Isle of Wight dinosaur discoveries
+ - [https://www.cnn.com/2021/09/29/world/spinosaurid-dinosaurs-isle-of-wight-scn/index.html](https://www.cnn.com/2021/09/29/world/spinosaurid-dinosaurs-isle-of-wight-scn/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 09:03:37+00:00
+
+While the Isle of Wight may be better suited for tourists these days, it was once "Dinosaur Island."
+
+## Bomb blast blood won't wash off barbells, but Lebanese athlete is undeterred in quest for powerlifting glory
+ - [https://www.cnn.com/2021/09/28/sport/shiva-karout-powerlifter-lebanon-beirut-blast-spt-intl/index.html](https://www.cnn.com/2021/09/28/sport/shiva-karout-powerlifter-lebanon-beirut-blast-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 06:45:28+00:00
+
+Shiva Karout says that the best moment of his life lasted just 17 seconds.
+
+## An artist sent a museum two empty frames, kept their $84K loan and called it 'art'
+ - [https://www.cnn.com/style/article/jens-haaning-kunsten-museum-modern-art/index.html](https://www.cnn.com/style/article/jens-haaning-kunsten-museum-modern-art/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 04:44:30+00:00
+
+When an exhibition about the future of labor opened at a Danish art museum on Friday, visitors should have seen two large picture frames filled with banknotes worth a combined $84,000.
+
+## Greta Thunberg roasts world leaders for being 'blah, blah, blah' on climate action
+ - [https://www.cnn.com/2021/09/28/world/greta-thunberg-climate-intl/index.html](https://www.cnn.com/2021/09/28/world/greta-thunberg-climate-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 03:45:08+00:00
+
+Swedish activist Greta Thunberg mocked world leaders -- including US President Joe Biden and the UK's Boris Johnson -- at a youth climate summit in Milan on Tuesday, saying the last 30 years of climate action had amounted to "blah, blah, blah."
+
+## The United States is heading for a cliff -- and taking the world with it
+ - [https://www.cnn.com/2021/09/28/world/meanwhile-in-america-september-28-intl/index.html](https://www.cnn.com/2021/09/28/world/meanwhile-in-america-september-28-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 03:21:10+00:00
+
+It's a game of chicken with the global economy.
+
+## 'No Time to Die' marks the end of Daniel Craig's service with a slightly bloated Bond film
+ - [https://www.cnn.com/2021/09/28/entertainment/no-time-to-die-review/index.html](https://www.cnn.com/2021/09/28/entertainment/no-time-to-die-review/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 03:13:43+00:00
+
+After 25 movies over 60 years, billing a James Bond adventure as the end of something requires a certain leap of faith. Still, Daniel Craig's yeoman service comes to its conclusion with "No Time to Die," a big and length-wise bloated epic that includes the desired bells and whistles, which, despite its flaws, should buy the movie considerable goodwill from an audience that has waited (and waited) for it.
+
+## China has upgraded its best stealth fighter jet with domestic-made engines
+ - [https://www.cnn.com/2021/09/28/china/j-20-fighter-jet-engines-airshow-intl-hnk-ml/index.html](https://www.cnn.com/2021/09/28/china/j-20-fighter-jet-engines-airshow-intl-hnk-ml/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 03:10:44+00:00
+
+China has finally showed off its most advanced fighter aircraft with domestic-made engines -- a significant milestone as Beijing pushes the capabilities of its J-20 stealth jets in a bid to rival the United States' F-22.
+
+## Limited edition Pokémon Oreo cookies are being listed for thousands on eBay
+ - [https://www.cnn.com/2021/09/28/us/pokemon-oreo-resale-cec/index.html](https://www.cnn.com/2021/09/28/us/pokemon-oreo-resale-cec/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 00:40:09+00:00
+
+How much would you pay for an Oreo cookie? For some, the answer could be thousands of dollars -- as one hard-to-find Oreo cookie featuring a rare Pokémon is fetching a hefty price tag on eBay.
+
+## North Korea claims hypersonic missile launch
+ - [https://www.cnn.com/videos/tv/2021/09/28/exp-tsr-todd-north-korea-hypersonic-missile-with-glider-warhead.cnn](https://www.cnn.com/videos/tv/2021/09/28/exp-tsr-todd-north-korea-hypersonic-missile-with-glider-warhead.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-09-29 00:37:11+00:00
+
+North Korea says it launched a hypersonic missile with a detachable glider warhead. It also delivered a speech at the UN blaming the US for regional tensions. CNN's Brian Todd reports.
+

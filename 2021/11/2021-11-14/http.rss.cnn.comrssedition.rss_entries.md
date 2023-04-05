@@ -1,0 +1,135 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## Call Of Duty publisher removes pages of Quran from the game after criticism
+ - [https://www.cnn.com/2021/11/14/us/call-cf-duty-vanguard-quran-criticism/index.html](https://www.cnn.com/2021/11/14/us/call-cf-duty-vanguard-quran-criticism/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 23:55:20+00:00
+
+The publisher of the video game Call of Duty: Vanguard has issued an apology after receiving criticism from Muslim players who noticed pages of the Quran lying on the floor during a gameplay scene.
+
+## 'So stupefying': Carl Bernstein on ex-Trump adviser's call for one religion in US
+ - [https://www.cnn.com/videos/politics/2021/11/14/michael-flynn-one-religion-bernstein-acostanr-vpx.cnn](https://www.cnn.com/videos/politics/2021/11/14/michael-flynn-one-religion-bernstein-acostanr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 23:25:00+00:00
+
+CNN's Jim Acosta and Watergate journalist Carl Bernstein react to former Trump national security adviser Michael Flynn calling for one religion in the US.
+
+## Investment group purchases Trump hotel in DC and is expected to remove Trump name
+ - [https://www.cnn.com/2021/11/14/politics/trump-organization-washington-dc-hotel-sale/index.html](https://www.cnn.com/2021/11/14/politics/trump-organization-washington-dc-hotel-sale/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 23:13:56+00:00
+
+The Trump Organization has reached a deal with the investment fund CGI Merchant Group to purchase the lease for the Trump International Hotel in Washington, DC, for $375 million, according to a person familiar with the matter.
+
+## West Wing aides have largely thrown up their hands at Kamala Harris and her staff
+ - [https://www.cnn.com/collections/intl-kamala-harris-111421/](https://www.cnn.com/collections/intl-kamala-harris-111421/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 22:04:24+00:00
+
+
+
+## Children caught up in Belarus-Poland border crisis face bitter nights without shelter
+ - [https://www.cnn.com/2021/11/14/europe/belarus-border-camp-migrants-intl-cmd/index.html](https://www.cnn.com/2021/11/14/europe/belarus-border-camp-migrants-intl-cmd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 20:09:34+00:00
+
+The air in the Belarusian forest is thick with the smoke from scores of small fires. People cough and choke but they keep burning the sticks of wet wood: it's the only way to warm up as temperatures start to fall sharply.
+
+## Inside the wild world of My Pillow CEO Mike Lindell
+ - [https://www.cnn.com/2021/11/14/media/mike-lindell-tv-reliable-sources/index.html](https://www.cnn.com/2021/11/14/media/mike-lindell-tv-reliable-sources/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 20:04:11+00:00
+
+Mike Lindell doesn't just sell pillows. He also sells false hope, CNN's chief media correspondent Brian Stelter said on "Reliable Sources" Sunday.
+
+## Twist in negotiations leads COP26 president to apologize
+ - [https://www.cnn.com/videos/world/2021/11/14/cop26-climate-deal-phil-black-pkg-ndwknd-vpx.cnn](https://www.cnn.com/videos/world/2021/11/14/cop26-climate-deal-phil-black-pkg-ndwknd-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 13:23:21+00:00
+
+CNN's Phil Black reports on the intense negotiations at COP26 around a global climate agreement.
+
+## What's happening with Europe's ski season
+ - [https://www.cnn.com/travel/article/return-to-the-alps-skiing/index.html](https://www.cnn.com/travel/article/return-to-the-alps-skiing/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 10:49:21+00:00
+
+Some miss the thrill of it. Some miss breathing in crisp, pure air on a sparkling mountainside. Others yearn for a cold drink on a sun-drenched terrace, or a cozy meal by a roaring fire after a day on the slopes.
+
+## Queen will miss Remembrance Sunday service after spraining her back
+ - [https://www.cnn.com/2021/11/14/uk/queen-cenotaph-gbr-intl/index.html](https://www.cnn.com/2021/11/14/uk/queen-cenotaph-gbr-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 10:02:34+00:00
+
+Queen will miss the Remembrance Sunday service in central London after spraining her back, Buckingham Palace said Sunday.
+
+## Here's what the jury in Kyle Rittenhouse's trial will have to weigh
+ - [https://www.cnn.com/2021/11/14/us/kyle-rittenhouse-jury-deliberations-charges/index.html](https://www.cnn.com/2021/11/14/us/kyle-rittenhouse-jury-deliberations-charges/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 09:01:47+00:00
+
+When jurors in the homicide trial of Kyle Rittenhouse begin deliberations, expected early this week, the young man's actions during a night of unrest on the streets of Kenosha, Wisconsin, last year will not be in dispute.
+
+## Investigators track down Cleveland bank teller who stuffed $215K into a paper bag and vanished 52 years ago
+ - [https://www.cnn.com/2021/11/14/us/ohio-bank-robber-identified-cec/index.html](https://www.cnn.com/2021/11/14/us/ohio-bank-robber-identified-cec/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 08:35:29+00:00
+
+Theodore John Conrad showed up for work as a bank teller in Cleveland. At the end of his shift, the then 20-year-old stole $215,000, stuffed it into a paper bag -- and vanished, authorities said.
+
+## Schools in New Delhi to close for a week amid severe air pollution crisis
+ - [https://www.cnn.com/2021/11/14/asia/new-delhi-air-pollution-intl/index.html](https://www.cnn.com/2021/11/14/asia/new-delhi-air-pollution-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 07:05:55+00:00
+
+Schools in India's capital Delhi -- often ranked as one of the world's most polluted capitals -- will be physically closed for a week from Monday as severe air pollution blankets the city, the chief minister of the National Capital Territory of Delhi, Arvind Kejriwal, said Saturday.
+
+## 'SNL' takes kids to Ted Cruz Street with Big Bird
+ - [https://www.cnn.com/2021/11/14/media/snl-ted-cruz-sesame-street/index.html](https://www.cnn.com/2021/11/14/media/snl-ted-cruz-sesame-street/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 05:21:35+00:00
+
+"Saturday Night Live" opened this weekend's show with Sen. Ted Cruz taking kids to "Ted Cruz Street," a play on "Sesame Street," on a channel called "Newsmax Kids."
+
+## Former Japanese princess moves to New York with newlywed husband
+ - [https://www.cnn.com/2021/11/13/asia/former-japan-princess-mako-moves-to-us/index.html](https://www.cnn.com/2021/11/13/asia/former-japan-princess-mako-moves-to-us/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 04:57:02+00:00
+
+Former Japanese Princess Mako moved to the United States on Sunday with her newlywed husband, commoner Kei Kumuro, after Mako exited Japan's royal family, Japanese public broadcaster NHK reported.
+
+## US secretary of state speaks with Chinese foreign minister on Taiwan tensions
+ - [https://www.cnn.com/2021/11/13/politics/blinken-wang-yi-call-taiwan-intl-hnk/index.html](https://www.cnn.com/2021/11/13/politics/blinken-wang-yi-call-taiwan-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 04:51:09+00:00
+
+US Secretary of State Antony Blinken expressed concern over China's continued pressure against Taiwan in a phone call with Chinese Foreign Minister Wang Yi on Friday, as the two countries prepare for a highly anticipated virtual summit between their leaders.
+
+## Hospital suspends doctor's privileges for spreading 'misinformation' about Covid-19
+ - [https://www.cnn.com/2021/11/13/us/houston-doctor-suspended-covid-19/index.html](https://www.cnn.com/2021/11/13/us/houston-doctor-suspended-covid-19/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 02:46:27+00:00
+
+A Texas hospital says it has suspended the privileges of a doctor who spread misinformation about Covid-19 on her social media.
+
+## Britain's army chief warns risk of accidental war with Russia is greater than during Cold War
+ - [https://www.cnn.com/2021/11/13/europe/uk-russia-war-risks-intl/index.html](https://www.cnn.com/2021/11/13/europe/uk-russia-war-risks-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 02:40:37+00:00
+
+The risk of an accidental war breaking out between Russia and the West is greater than at any time during the Cold War, Britain's most senior military officer has said in an interview with Times Radio.
+
+## Personal finance expert: 'This could be the most expensive Thanksgiving that we've had in history'
+ - [https://www.cnn.com/videos/tv/2021/11/14/ted-jenkin-inflation-thanksgiving-cnn-newsroom.cnn](https://www.cnn.com/videos/tv/2021/11/14/ted-jenkin-inflation-thanksgiving-cnn-newsroom.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 01:53:14+00:00
+
+Ted Jenkin, a personal finance expert and CEO of oXYGen Financial, tells CNN's Pamela Brown that Americans should be ready for an expensive Thanksgiving holiday due to increased prices of everything from Turkey to pie to baking ingredients.
+
+## Pro Football Hall of Famer Sam Huff dies at 87
+ - [https://www.cnn.com/2021/11/13/us/football-hall-of-famer-sam-huff-dies-spt/index.html](https://www.cnn.com/2021/11/13/us/football-hall-of-famer-sam-huff-dies-spt/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-11-14 01:39:40+00:00
+
+Pro Football Hall of Famer and former Washington and New York Giants linebacker Sam Huff died Saturday, Washington Football Team owner Daniel Snyder said in a statement.
+

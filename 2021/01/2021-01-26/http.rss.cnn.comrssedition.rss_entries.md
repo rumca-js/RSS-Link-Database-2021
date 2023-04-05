@@ -1,0 +1,16 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## Reporter reveals list of Republicans Trump wants to 'punish'
+ - [https://www.cnn.com/videos/politics/2021/01/26/trump-punish-list-brian-kemp-liz-cheney-newday-vpx.cnn](https://www.cnn.com/videos/politics/2021/01/26/trump-punish-list-brian-kemp-liz-cheney-newday-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-26 19:07:24+00:00
+
+President Trump is looking to retaliate against several Republicans including Georgia's Governor Brian Kemp and Wyoming Rep. Liz Cheney, according to New York Times reporter Maggie Haberman.
+
+## Beijing cracks down on citizen journalists who blew whistle on Covid-19
+ - [https://www.cnn.com/videos/world/2021/01/26/coronavirus-china-ccp-crackdown-citizen-journalists-culver-dnt-newday-intl-ldn-vpx.cnn](https://www.cnn.com/videos/world/2021/01/26/coronavirus-china-ccp-crackdown-citizen-journalists-culver-dnt-newday-intl-ldn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2021-01-26 16:18:06+00:00
+
+A year after the first coronavirus lockdown enveloped Wuhan, China, Chinese officials have been cracking down on citizen journalists who risked their freedoms to reveal and preserve the truth about the initial outbreak. CNN's David Culver speaks with Chen Kun, who fled the country after his younger brother was arrested for preserving an important internet database of news archives.
+

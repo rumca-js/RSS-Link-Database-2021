@@ -1,0 +1,16 @@
+# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
+
+## Has losing your sense of taste or smell because of Covid affected your work?
+ - [https://www.theguardian.com/world/2021/jan/21/has-losing-taste-or-smell-because-of-covid-affected-your-work](https://www.theguardian.com/world/2021/jan/21/has-losing-taste-or-smell-because-of-covid-affected-your-work)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2021-01-21 17:01:41+00:00
+
+<p>If you’ve lost your sense of taste or smell because of having coronavirus and it’s affected your job, we’d like to hear from you</p><p>Does your job rely on a sense of taste or smell? We are looking to speak to people whose careers have been affected because of having Covid-19 and losing their sense of taste and/or smell. </p><p>If you have had Covid and your job relies on your sense of taste or smell, for example - perfumers, wine tasters and buyers, cooks – we’d like to hear from you. </p> <a href="https://www.theguardian.com/world/2021/jan/21/has-losing-taste-or-smell-because-of-covid-affected-your-work">Continue reading...</a>
+
+## Why is Sex and the City coming back to our screens? – podcast
+ - [https://www.theguardian.com/news/audio/2021/jan/21/why-is-sex-and-the-city-coming-back-to-our-screens-podcast](https://www.theguardian.com/news/audio/2021/jan/21/why-is-sex-and-the-city-coming-back-to-our-screens-podcast)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2021-01-21 03:00:19+00:00
+
+<p>Guardian columnist Hadley Freeman discusses why Sex and the City was such a successful TV series, while the Guardian’s deputy television editor, Hannah J Davies, looks at what the reboot tells us about TV commissioning today</p><p><strong>Rachel Humphreys</strong> talks to the Guardian columnist <strong>Hadley Freeman</strong> about the television show Sex and the City. Last week, the US streaming service HBO Max announced that the series would be returning, under a new title of And Just Like That ... and will feature the original stars, apart from Kim Cattrall. Hadley tells Rachel why she thinks the original show was such a huge success – offering a potent mix of escapism with serious, well-written plot lines that she feels sing with “emotional truth”. Hadley notes that SATC is often singled out for criticism over its lack of diversity while other shows of that era like the HBO series The Sopranos do not invite the same level of criticism. </p><p><strong>Hannah J Davies</strong>, the Guardian’s deputy television, discusses why SATC is being rebooted and what it may need to do to reflect the fact it is being made in a very different era. She says that if you watch TV, you may think that because there are more people of colour on our screens, the industry has improved representation, and it has. But you need to also look at who is making and producing television content. In the UK, she says, the television industry is still very white and very male dominated.</p> <a href="https://www.theguardian.com/news/audio/2021/jan/21/why-is-sex-and-the-city-coming-back-to-our-screens-podcast">Continue reading...</a>
+
