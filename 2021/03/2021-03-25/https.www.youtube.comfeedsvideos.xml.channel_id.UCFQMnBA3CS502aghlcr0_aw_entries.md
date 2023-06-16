@@ -1,0 +1,19 @@
+# Source:Coffeezilla, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCFQMnBA3CS502aghlcr0_aw, language:en-US
+
+## Committing 8 Federal Crimes to Buy a TikTok Clout House
+ - [https://www.youtube.com/watch?v=26JnquF5o_E](https://www.youtube.com/watch?v=26JnquF5o_E)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCFQMnBA3CS502aghlcr0_aw
+ - date published: 2021-03-26 00:00:00+00:00
+
+Don Cisternino has been charged with two counts of wire fraud, three counts of aggravated identity theft and three counts of illegal monetary transactions. If convicted, he faces more than 70 years in prison.
+ABC Summary https://abcnews.go.com/Health/wireStory/florida-man-charged-covid-relief-fraud-75764571
+DOJ Indictment https://www.justice.gov/usao-mdfl/press-release/file/1365426/download
+These are all allegations, everyone is innocent until proven guilty.
+
+Follow Coffeezilla
+► Twitter: https://twitter.com/coffeebreak_YT
+► Instagram: https://www.instagram.com/coffeebreak_yt/
+🎶 Music: https://www.youtube.com/watch?v=nMSQ1yoPT2c&list=PL4qw3AkxFDSNhEgawXD1j6r0iN1072XIB&index=1
+This video is an opinion and in no way should be construed as statements of fact. Scams, bad business opportunities, and fake gurus are subjective terms that mean different things to different people. I think someone who promises $100K/month for an upfront fee of $2K is a scam. Others would call it a Napolean Hill pitch.
+#pppchronicles #fraud #coffeezilla
+

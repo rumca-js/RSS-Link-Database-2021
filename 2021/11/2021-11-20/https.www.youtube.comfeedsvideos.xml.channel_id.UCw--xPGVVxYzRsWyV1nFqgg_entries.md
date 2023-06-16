@@ -1,0 +1,46 @@
+# Source:Daniel Greene, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCw--xPGVVxYzRsWyV1nFqgg, language:en-US
+
+## Wheel of Time Episode Three Deep Dive (Footing Found?)
+ - [https://www.youtube.com/watch?v=oIVvV1pQv2A](https://www.youtube.com/watch?v=oIVvV1pQv2A)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCw--xPGVVxYzRsWyV1nFqgg
+ - date published: 2021-11-21 00:00:00+00:00
+
+My thoughts on episode three of #TheWheelOfTime show over at Amazon! 
+Patreon: https://www.patreon.com/DanielBGreene 
+All the Me Social Links: https://linktr.ee/DanielGreene
+
+Lawful Times Series: 
+Breach of Peace: https://amzn.to/3CnKsfX
+Rebels Creed: https://amzn.to/3Gtqt2p
+
+Equipment: 
+Camera: https://amzn.to/3siqgHv  
+Lense: https://amzn.to/3ugGxhQ  
+Lighting: https://amzn.to/3aI3brK  
+Microphone: https://amzn.to/3pCGtWg  
+Tripod: https://amzn.to/3kd9yq1  
+
+P.O. Box: PO Box 7874 Henrico, VA 23231
+
+## Wheel of Time Episode Two Deep Dive (A Promising Step)
+ - [https://www.youtube.com/watch?v=7S3M0POvXZ0](https://www.youtube.com/watch?v=7S3M0POvXZ0)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCw--xPGVVxYzRsWyV1nFqgg
+ - date published: 2021-11-20 00:00:00+00:00
+
+My thoughts on episode 2 of #TheWheelOfTime show over at Amazon! 
+Patreon: https://www.patreon.com/DanielBGreene 
+All the Me Social Links: https://linktr.ee/DanielGreene
+
+Lawful Times Series: 
+Breach of Peace: https://amzn.to/3CnKsfX
+Rebels Creed: https://amzn.to/3Gtqt2p
+
+Equipment: 
+Camera: https://amzn.to/3siqgHv  
+Lense: https://amzn.to/3ugGxhQ  
+Lighting: https://amzn.to/3aI3brK  
+Microphone: https://amzn.to/3pCGtWg  
+Tripod: https://amzn.to/3kd9yq1  
+
+P.O. Box: PO Box 7874 Henrico, VA 23231
+

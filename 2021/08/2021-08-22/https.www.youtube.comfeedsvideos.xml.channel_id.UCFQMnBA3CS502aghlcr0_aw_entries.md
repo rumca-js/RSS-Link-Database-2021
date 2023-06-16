@@ -1,0 +1,27 @@
+# Source:Coffeezilla, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCFQMnBA3CS502aghlcr0_aw, language:en-US
+
+## CONFRONTING Frazier Kay on Save The Kids
+ - [https://www.youtube.com/watch?v=2oltaY5pz5c](https://www.youtube.com/watch?v=2oltaY5pz5c)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCFQMnBA3CS502aghlcr0_aw
+ - date published: 2021-08-23 00:00:00+00:00
+
+Frazier Kay RESPONDED to recent Save The Kids allegations and to everyone's surprise... claimed he was innocent! Kay maintains that his mistake was trusting Sam Pepper and that Sam Pepper was the one who made everything go bad. He accused Sam Pepper of holding up to 12% of the total supply of the coin, and today we're going to address his claims. 
+
+Background: Save the Kids was a crypto that was promoted by the top influencers in the world. 
+Faze Kay, Faze Jarvis, Faze Teeqo, Faze Nikan and Ricegum all promoted the coin, along with many other popular influencers being involved.  After this story broke, Kay was kicked out of Faze along with several other members being suspended. Teeqo has been found innocent and recently responded in a video. 
+
+SPECIAL THANKS TO: 
+Mutahar from SomeOrdinaryGamers
+Barely Sociable
+
+Follow Coffeezilla: 
+► Twitter: https://twitter.com/coffeebreak_YT
+► Instagram: https://www.instagram.com/coffeebreak_yt/
+🎶 Music: https://www.youtube.com/watch?v=nMSQ1yoPT2c&list=PL4qw3AkxFDSNhEgawXD1j6r0iN1072XIB&index=1
+Credits: 
+3D Artist: Ed Leszczynski https://www.instagram.com/ed_leszczynski/
+Video Editor: Harry Bagg  https://twitter.com/HarryBagg96
+Maxwell🤖: Technicals https://youtube.com/c/Technicals
+
+This video is an opinion and in no way should be construed as statements of fact. Scams, bad business opportunities, and fake gurus are subjective terms that mean different things to different people. I think someone who promises $100K/month for an upfront fee of $2K is a scam. Others would call it a Napoleon Hill pitch.
+

@@ -1,0 +1,39 @@
+# Source:Red Means Recording, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UChnxLLvzviaR5NeKOevB8iQ, language:en-US
+
+## The ARP 2600M Experience
+ - [https://www.youtube.com/watch?v=3pCUR9hdRnI](https://www.youtube.com/watch?v=3pCUR9hdRnI)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UChnxLLvzviaR5NeKOevB8iQ
+ - date published: 2021-11-12 00:00:00+00:00
+
+The Korg Arp 2600M is a "mini" version of the extremely classic Arp 2600 analog synthesizer. In this video I multitrack it to create 4 experiences that show off how it can sound. All sounds besides drums and noise risers are from the Arp. Keep reading for what's going on in each "experience"!
+
+Arp 2600 M at Perfect Circuit: https://bit.ly/3kwPPTF
+
+00:00 synthwave experience
+classic synthwave sounds. captured midi for each part in ableton and then recorded the audio while playing the panel controls. arp, bass, lead, noise lead, drums. used amp and cab simulation in ableton on some parts to give more space to the mix and add some grit.
+
+03:03 ring mod experience
+fed a youtube video playing terence mckenna directly into the arp's preamp, then piped that to the ring modulator. the pre-amp signal also creates an envelope via the envelope follower that is used to adjust the filter cutoff. played around with a pass of just noise and effects, then added a repeating melodic line and a bubbling abstract arpeggio underneath.
+
+06:27 collapse experience
+the modwheel of your midi controller plugged into the arp can be used as a cv modulator for anything in the synth. i used it to do pitch-bends of specific oscillators to specific intervals, giving me a cool sort of duophonic slide lead thing. wanted to make a track that sounded like black moth super rainbow, but one the acapella dropped in it felt more like tabacco. I'm not complaining.
+
+09:57 euphoric experience
+the arp can be used as a duophonic synthesizer, meaning you can play two separate notes at once through the same filter and vca section. if you tune the third oscillator to a pleasant interval, you can get nice chords. that and the arp are the basis of this track. the acid rain maestro provides complex modulation to the filter which i bring in and out.
+------------------------------------
+Patreon:  http://bit.ly/rmrpatreon
+
+My Music: 
+Bandcamp: http://bit.ly/2Kq617o
+Soundcloud: http://bit.ly/2NOH9Is
+Spotify: https://spoti.fi/2N40SoX
+Google Play: http://bit.ly/33M9aG5
+iTunes: https://apple.co/2pqh3SK
+Amazon Music: https://amzn.to/2O9q1fe
+
+Merch: http://bit.ly/rmrshirts
+
+Connect:
+Twitter: http://bit.ly/rmrtwitters
+Website: http://bit.ly/rmrmedia
+

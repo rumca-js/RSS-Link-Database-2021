@@ -1,0 +1,41 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## Hitman 3 Gameplay - Assassination Mission
+ - [https://www.youtube.com/watch?v=Fw-eMSfBefU](https://www.youtube.com/watch?v=Fw-eMSfBefU)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2021-01-08 00:00:00+00:00
+
+Hitman 3 is rapidly approaching its January 20 release date. Ahead of the game's launch, we had the opportunity to play a few sections of the game, and in a new video, you can watch as we infiltrate the gorgeous Burj Al-Ghazali and take down a series of targets in style.
+
+Check out the full video to watch us sneak through the level's lovely-looking environments and do our best to go unnoticed as we track down targets and slip away. As with any good Hitman experience, things get tense and nerve-wracking at times, as the action escalates to a dramatic conclusion. 
+
+Hitman 3 launches on January 20 for PS4, Xbox One, and PC, while the game will also be available on PlayStation 5 and Xbox Series X. Keep checking back with GameSpot for more, including additional written and video content, along with our full review.
+
+## Hitman 3 Is More Hitman, And That's Bloody Great
+ - [https://www.youtube.com/watch?v=e5CRrnvRS5I](https://www.youtube.com/watch?v=e5CRrnvRS5I)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2021-01-08 00:00:00+00:00
+
+Jean-Luc and Phil got hands-on with the first two missions of Hitman III, the first major release of 2021.
+
+The final game in the Hitman World of Assassination trilogy is nearly upon us. Hitman 3 will be hitting all major platforms, including the PS5 and Series X/S, on January 20, but Jean-Luc Seipke and Phil Hornshaw got an early hands-on preview with the game.
+
+In this video, they talk about their experience with the first two levels, one taking place in a luxurious skyscraper in Dubai and the other involving a classic murder mystery in a European mansion. At its core, Hitman 3 doesn't stray far from what's come before, but our experience with these levels show that IO Interactive still knows how to craft some fantastic sandboxes for Agent 47 to play in.
+
+If you’re interested in reading more about Hitman 3, check out Phil’s written preview, where he goes more in depth on the game’s second mission. And make sure to stay tuned to GameSpot for our full coverage of Hitman 3 when the game releases in a few weeks.
+
+## Monster Hunter Rise Early Access Demo Gameplay
+ - [https://www.youtube.com/watch?v=4PhFh3i3Hi4](https://www.youtube.com/watch?v=4PhFh3i3Hi4)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2021-01-07 00:00:00+00:00
+
+We go on the hunt against Mizutsune in the The Monster Hunter Rise Early Access demo on the Nintendo Switch with the Longsword! Keep an eye out to see the new wire bug and mounting system all in action.
+
+Monster Hunter Rise marks the first brand-new Monster Hunter game to release on Nintendo Switch, and much like Monster Hunter World before it, it shakes up the series' formula in some novel ways. Perhaps its biggest innovations are the Palamute and the Wirebug, both of which are showcased prominently in the game's free Switch demo.
+
+We had a chance to play an early access version of the Monster Hunter Rise demo, sampling its two training missions and its two proper hunts. The former are designed to show newer players the ropes, while the latter send you off to slay the Great Izuchi--one of Rise's new monsters--and the returning Mizutsune.
+
+You can check out some gameplay of all four demo missions in the video above. For more on the game, be sure to check out our roundup of everything we know about Monster Hunter Rise, as well as our preorder guide for a detailed look at the game's different editions and preorder bonuses.
+
+Monster Hunter Rise launches on Switch on March 26. Capcom is also releasing three Monster Hunter Rise Amiibo figures alongside the game that same day, which will unlock exclusive gear in the title.
+

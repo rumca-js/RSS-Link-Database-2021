@@ -1,0 +1,135 @@
+# Source:SciShow, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCZYTClx2T1of7BRZ86-8fow, language:en-US
+
+## The Greenest Grocery Bag
+ - [https://www.youtube.com/watch?v=JvzvM9tf5s0](https://www.youtube.com/watch?v=JvzvM9tf5s0)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCZYTClx2T1of7BRZ86-8fow
+ - date published: 2021-03-11 00:00:00+00:00
+
+It seems like a simple question with a straightforward answer, but when you look at the total environmental impact of each type of bag, things start to get a little complicated.
+
+Hosted by: Hank Green
+
+SciShow has a spinoff podcast! It's called SciShow Tangents. Check it out at http://www.scishowtangents.org
+----------
+Support SciShow by becoming a patron on Patreon: https://www.patreon.com/scishow
+----------
+Huge thanks go to the following Patreon supporters for helping us keep SciShow free for everyone forever:
+
+Silas Emrys, Charles Copley, Drew Hart, Jeffrey Mckishen, James Knight, Christoph Schwanke, Jacob, Matt Curls, Christopher R Boucher, Eric Jensen, Lehel Kovacs, Adam Brainard, Greg, GrowingViolet, Ash, Laura Sanborn, Sam Lutfi, Piya Shedden, KatieMarie Magnone, Scott Satovsky Jr, charles george, Alex Hackman, Chris Peters, Kevin Bealer
+
+----------
+Looking for SciShow elsewhere on the internet?
+Facebook: http://www.facebook.com/scishow
+Twitter: http://www.twitter.com/scishow
+Tumblr: http://scishow.tumblr.com
+Instagram: http://instagram.com/thescishow
+----------
+Sources:
+https://www.gov.uk/government/publications/life-cycle-assessment-of-supermarket-carrierbags-a-review-of-the-bags-available-in-2006 
+https://www2.mst.dk/Udgiv/publications/2018/02/978-87-93614-73-4.pdf 
+https://wedocs.unep.org/xmlui/handle/20.500.11822/31932 
+https://www.sciencedirect.com/science/article/abs/pii/S0956053X17306335 
+https://www.epa.nsw.gov.au/~/media/EPA/Corporate%20Site/resources/waste/160143-plastic-shopping-bags-options.ashx 
+https://www.aeaweb.org/articles?id=10.1257/pol.20150261 
+https://www.sciencedirect.com/science/article/abs/pii/S0956053X19300960?via%3Dihub 
+https://theconversation.com/how-life-cycle-assessments-can-be-mis-used-to-justify-more-single-use-plastic-packaging-147672 
+https://www.epa.gov/facts-and-figures-about-materials-waste-and-recycling/textiles-material-specific-data 
+https://science.sciencemag.org/content/347/6223/768 
+https://pubs.acs.org/doi/10.1021/acs.est.8b06984 
+https://www.epa.gov/ghgemissions/understanding-global-warming-potentials 
+https://link.springer.com/article/10.1007/s11270-014-2184-6 
+
+Images:
+https://www.istockphoto.com/vector/brown-paper-texture-background-gm1223542237-359437972
+https://www.istockphoto.com/vector/set-of-recycle-symbol-vector-illustration-isolated-on-white-background-gm1163514230-319508364
+https://www.istockphoto.com/photo/use-plastic-bags-gm999802822-270379266
+https://www.istockphoto.com/photo/green-bag-full-of-gorceries-gm176129887-10580251
+https://www.istockphoto.com/vector/fresh-groceries-in-assorted-bags-and-baskets-gm1224396734-360004166
+https://www.istockphoto.com/vector/set-of-shopping-and-grocery-bags-natural-farm-healthy-food-organic-fresh-fruits-and-gm1286199280-382781960
+https://www.storyblocks.com/video/stock/equipment-on-a-factory-4ijttrwqlikdrt5gl
+https://www.storyblocks.com/video/stock/close-up-of-seller-putting-grape-in-plastic-bag-seller-selling-fruits-at-fruits-market-people-food-shopping-and-consumerism-concept-se0cgobguklgw5hqx
+https://www.storyblocks.com/video/stock/dumped-on-the-grass-plastic-bag-flapping-by-the-wind-scattered-trash-on-the-ground-b-3ibg6llk8bt2gne
+https://commons.wikimedia.org/wiki/File:Greenhouse-effect-t2.svg
+https://commons.wikimedia.org/wiki/File:Facial_wash_gel_bottle_made_of_LDPE.jpg
+https://www.istockphoto.com/photo/potato-starch-compostable-wrapper-gm1134191168-301293840
+https://www.istockphoto.com/photo/irrigation-in-field-of-growing-potatoes-gm480284727-36410078
+https://www.istockphoto.com/photo/paper-factory-with-smog-gm161335746-23062040
+https://www.istockphoto.com/photo/polypropylene-tote-bag-gm1285008061-381974633
+https://www.istockphoto.com/photo/aerial-view-of-a-cotton-picker-working-in-a-field-gm1066048706-285076624
+https://www.istockphoto.com/vector/fresh-groceries-in-assorted-bags-and-baskets-gm1224396734-360004166
+https://www.istockphoto.com/photo/plastic-grocery-bags-gm1134594827-301537418
+https://www.istockphoto.com/photo/the-store-that-keeps-my-cupboards-stocked-gm1210530753-350723516
+https://www.istockphoto.com/vector/robot-and-human-pushing-trolley-carts-full-of-groceries-robotic-character-vs-man-gm1202169675-345025762
+https://www.istockphoto.com/photo/garbage-dump-with-flock-of-birds-gm1180639577-330833525
+https://www.istockphoto.com/photo/office-recycling-gm181880902-24657029
+https://www.istockphoto.com/photo/pollution-gm1280810625-379026431
+https://www.istockphoto.com/photo/landfill-garbage-gm184868014-18426110
+https://www.istockphoto.com/photo/underwater-global-problem-with-plastic-rubbish-gm1141999585-306181883
+https://www.istockphoto.com/photo/garbage-and-seagulls-gm178415548-24571213
+https://www.istockphoto.com/photo/small-bin-gm507329159-45304564
+https://www.istockphoto.com/photo/woman-carry-bag-on-nature-background-in-save-earth-concept-or-say-no-plastic-bag-gm1205275036-347135142
+https://www.istockphoto.com/photo/food-delivery-during-quarantine-gm1217134622-355160629
+
+## The Scientist Who Made the Internet Possible | Great Minds: Narinder Singh Kapany
+ - [https://www.youtube.com/watch?v=v4ljKF8LLxc](https://www.youtube.com/watch?v=v4ljKF8LLxc)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCZYTClx2T1of7BRZ86-8fow
+ - date published: 2021-03-11 00:00:00+00:00
+
+Thanks to Qualcomm for sponsoring a portion of this video. Learn more at https://www.qualcomm.com/products/mobile-computing/mobile-pcs
+
+
+
+The tools and resources the internet provides us have undoubtedly become everyday necessities for a large portion of the world. That technology would not have been possible without the research of an often overlooked scientist named Narinder Singh Kapany, who learned how to bend light. 
+
+Hosted by: Hank Green
+
+SciShow has a spinoff podcast! It's called SciShow Tangents. Check it out at http://www.scishowtangents.org
+----------
+Support SciShow by becoming a patron on Patreon: https://www.patreon.com/scishow
+----------
+Huge thanks go to the following Patreon supporters for helping us keep SciShow free for everyone forever:
+
+Silas Emrys, Charles Copley, Drew Hart, Jeffrey Mckishen, James Knight, Christoph Schwanke, Jacob, Matt Curls, Christopher R Boucher, Eric Jensen, Lehel Kovacs, Adam Brainard, Greg, GrowingViolet, Ash, Laura Sanborn, Sam Lutfi, Piya Shedden, KatieMarie Magnone, Scott Satovsky Jr, charles george, Alex Hackman, Chris Peters, Kevin Bealer
+
+----------
+Looking for SciShow elsewhere on the internet?
+Facebook: http://www.facebook.com/scishow
+Twitter: http://www.twitter.com/scishow
+Tumblr: http://scishow.tumblr.com
+Instagram: http://instagram.com/thescishow
+----------
+Sources:
+https://www.nature.com/articles/173039b0
+https://www.osapublishing.org/josa/abstract.cfm?uri=josa-49-8-779
+https://www.osapublishing.org/josa/abstract.cfm?uri=josa-47-12-1109
+https://www.scientificamerican.com/article/fiber-optics/
+https://www.nobelprize.org/uploads/2018/06/advanced-physicsprize2009.pdf
+http://news.rediff.com/report/2009/oct/08/how-india-missed-another-nobel-prize.htm
+https://news.ucsc.edu/2020/12/narinder-kapany-in-memoriam.html
+http://www.sikhfoundation.org/dr-narinder-s-kapany-120320/
+https://www.tribuneindia.com/news/diaspora/father-of-fibre-optics-and-patron-of-sikh-arts-narinder-singh-kapany-dies-at-94-179849
+https://web.archive.org/web/20100613143724/http://www.sff.net/people/Jeff.Hecht/history.html
+https://onlinelibrary.wiley.com/doi/10.1002/9781444354577.ch3
+https://www.quora.com/How-does-information-travel-in-fibre-optic-cables
+https://archive.fortune.com/magazines/fortune/fortune_archive/1999/11/22/269122/index.htm
+https://www.atlantech.net/blog/bandwidth-fiber-vs-copper-which-is-the-clear-winner
+https://aip.scitation.org/doi/pdf/10.1063/1.1653255
+https://edition.cnn.com/2019/07/25/asia/internet-undersea-cables-intl-hnk/index.html
+
+Image Sources:
+https://www.storyblocks.com/video/stock/mature-lady-having-video-chat-with-female-business-partner-bho_o-kcwkhudrgsw
+https://commons.wikimedia.org/wiki/File:The_National_Inventors_Council,_1966.jpg
+https://www.istockphoto.com/vector/fiber-optics-background-gm1269672263-372914102
+https://www.istockphoto.com/photo/map-of-india-gm530825318-93548255
+https://www.storyblocks.com/video/stock/rising-colorful-light-beams-and-streaks-seamless-motion-loop-full-hd-1920x1080-magenta-pink-swwd9zr9xj01k3scj
+https://www.istockphoto.com/photo/imperial-college-london-gm1030098004-276003502
+https://upload.wikimedia.org/wikipedia/commons/a/a6/Gastroscopio.jpg
+https://commons.wikimedia.org/w/index.php?search=gastroscope&title=Special%3ASearch&go=Go&ns0=1&ns6=1&ns12=1&ns14=1&ns100=1&ns106=1#/media/File:How's_your_stomach?_Washington,_D.C.,_Sept._8._Dr._Fred_A._J._Geier,_member_of_the_faculty_of_Georgetown_University_Medical_School,_looks_thru_the_gastroscope,_a_newly_designed_instrument_by_LCCN2016872308.jpg
+https://www.istockphoto.com/photo/fiber-optics-abstract-background-purple-blue-data-internet-technology-cable-gm1173891823-326235509
+https://commons.wikimedia.org/wiki/File:Charles_K._Kao_and_John_Fleming_2004.jpg
+https://www.istockphoto.com/photo/math-physics-formulas-gm838557436-136518763
+https://www.istockphoto.com/photo/black-strings-with-green-glowing-heads-suitable-for-technology-internet-and-computer-gm1191676934-338295093
+https://www.storyblocks.com/video/stock/open-door---3d-animation-on-green-screen-sjvnlalilk7yo1vno
+https://www.storyblocks.com/video/stock/cloud-computing-internet-of-things-iot-connected-storage-device-network-r1n3mrpddkgts5u3n
+https://www.istockphoto.com/photo/light-background-gm180746711-24872906
+

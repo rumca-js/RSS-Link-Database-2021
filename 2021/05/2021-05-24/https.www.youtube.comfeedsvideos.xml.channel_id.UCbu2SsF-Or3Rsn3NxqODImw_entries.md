@@ -1,0 +1,38 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## Why Sniper Rifles Are Usually Broken In COD & FPS Games
+ - [https://www.youtube.com/watch?v=sz59NAn-fyU](https://www.youtube.com/watch?v=sz59NAn-fyU)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2021-05-25 00:00:00+00:00
+
+Sniper rifles are notoriously broken and overpowered in video games like Call of Duty, Battlefield, and other multiplayer shooters. From long-range shots to 360 no scopes, it’s time to take a look at why sniper rifles often struggle to translate to video games.
+
+Sniper rifles have a rocky history in video games like Call Of Duty, Battlefield, and other multiplayer shooters. The complex physics of real-world long-range shooting is fundamentally too difficult to translate to video games, leading developers to both simplify sniper rifles and also exaggerate their drawbacks to keep them balanced. 
+
+In this video, we’re going to look at what sniper rifles are, how they are used in games, the extreme compromises used to balance them, some things developers aren’t trying to make easier, and what happens when they are forced onto small maps. We’re also just going to marvel at the skill of some players who can quickscope and even do 360 no scopes. 
+
+If you love multiplayer shooters, make sure to head over to GameSpot’s YouTube page to watch our Firearms Expert Reacts series, our coverage of Call Of Duty: Cold War’s mid-season 3 update that includes Rambo, and ongoing coverage up to the release of Battlefield 6.
+
+## 7 Things To Get You Started In Biomutant
+ - [https://www.youtube.com/watch?v=g3JtNXivCpU](https://www.youtube.com/watch?v=g3JtNXivCpU)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2021-05-24 00:00:00+00:00
+
+Biomutant is a strange game. Filled with poison biomes, weird weaponry, and some bizarre enemies. It can also be a pretty punishing game to begin with so we've put together a few tips to get you started. Everything from combat, crafting, looting, exploration and more.
+
+## Biomutant Every Hazard Biome Gameplay (1440p)
+ - [https://www.youtube.com/watch?v=ueHGc_oww3k](https://www.youtube.com/watch?v=ueHGc_oww3k)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2021-05-24 00:00:00+00:00
+
+The world of Biomutant is pretty messed up, between the lush fields and forests lie some pretty dangerous places. From Deadzones devoid of oxygen, burned out tundra, poison factories and radiated wastelands. Get a glimpse of 14 minutes of gameplay showcasing the various biomes and different enemies.
+
+## Biomutant Review
+ - [https://www.youtube.com/watch?v=COotoXMsYRc](https://www.youtube.com/watch?v=COotoXMsYRc)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2021-05-24 00:00:00+00:00
+
+Biomutant presents a different take on the post-apocalypse, but a forgettable story and uneven gameplay hold it back.
+
+Biomutant is now available on PS4, Xbox One X, and PC. You can read the full written review by Richard Wakeling on GameSpot.com: https://www.gamespot.com/reviews/biomutant-review-a-flawed-mutation/1900-6417678/
+

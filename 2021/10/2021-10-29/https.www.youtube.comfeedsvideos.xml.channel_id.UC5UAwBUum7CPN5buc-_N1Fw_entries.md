@@ -1,0 +1,95 @@
+# Source:The Linux Experiment, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw, language:en-US
+
+## JingPad A1 Review: Flagship Hardware, but that software...
+ - [https://www.youtube.com/watch?v=LIKfXbwzfXE](https://www.youtube.com/watch?v=LIKfXbwzfXE)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw
+ - date published: 2021-10-30 00:00:00+00:00
+
+Wanna get your own Linux server? Visit https://www.linode.com/linuxexperiment for a 100$ credit ! 
+
+
+
+Get your Linux desktop or laptop here: https://slimbook.es/en/
+
+
+
+
+👏 SUPPORT THE CHANNEL:
+Get access to an exclusive weekly podcast, vote on the next topics I cover, and get your name in the credits:
+
+YOUTUBE: https://www.youtube.com/channel/UC5UAwBUum7CPN5buc-_N1Fw/join
+Patreon: https://www.patreon.com/thelinuxexperiment
+
+Or, you can donate whatever you want: https://paypal.me/thelinuxexp?locale.x=fr_FR
+
+🏆 FOLLOW ME ELSEWHERE:
+Join us on our new Discord server: https://discord.gg/xK7ukavWmQ
+Twitter : http://twitter.com/thelinuxEXP
+My Gaming on Linux Channel: https://www.youtube.com/channel/UCaw_Lz7oifDb-PZCAcZ07kw
+Follow me on ODYSEE: https://odysee.com/@TheLinuxExperiment:e
+Or join ODYSEE: https://odysee.com/$/invite/@TheLinuxExperiment:e
+
+📷 GEAR I USE:
+Sony Alpha A6600 Mirrorless Camera: https://amzn.to/30zKyn7
+Sigma 56mm Fixed Prime Lens: https://amzn.to/3aRvK5l
+Logitech MX Master 3 Mouse: https://amzn.to/3BVI0Od
+Bluetooth Space Grey Mac Keyboard: https://amzn.to/3jcJETZ
+Logitech Brio 4K Webcam: https://amzn.to/3jgeTh9
+LG Curved Ultrawide Monitor: https://amzn.to/3pcTVDH
+Logitech White Speakers: https://amzn.to/3n6wSb0
+Xbox Controller: https://amzn.to/3BWmIA3
+*Amazon Links are affiliate codes and generate small commissions to support the channel*
+
+
+00:00 Intro
+01:50 Hardware
+06:34 Software
+12:23 Accessories
+14:37 Parting Thoughts
+
+
+Let's begin with the hardware itself. The tablet itself is really high quality. It's glass on both sides, with aluminium all around. It has an 11 inch display with a 4:3 aspect ratio, that I definitely like better than widescreen 16:9 for a tablet.
+
+It's a really thin device, at 6.7mm, and weighs just under 500g.
+
+In terms of specs, the JingPad A1 uses a UNISOC Tiger T7510. it's an 8 core system on a chip, with 4 cortex A75 performance cores at 2Ghz, and 4 Cortex A55 efficiency cores at 1.8Ghz for less power intensive tasks.
+On top of that chip, you get 8Gb of RAM, 256Gb of storage, as well as dual band wifi, and bluetooth 5.
+
+Now, let's talk about the most important part of a tablet: the display. It's amazing. Like, really, really good. It's an AMOLED panel, with a 2368x1728 resolution, which puts it at 266 pixels per inch.
+
+You also get 2 cameras: a front facing one, at 8MP, and a back camera, at 16Mp.
+
+The speakers are decent, firing from both sides of the tablet.
+
+Ok, let's move on to the software. There's no 2 ways about it, it's not finished.
+
+The default interface is pretty nice, and really well designed for tablets. You have your grid of applications, a favorites dock at the bottom, and some indicators on the top edge of the screen. Swiping down from the top left edge brings the notification center, and swiping down from the top right edge brings the quick settings.
+
+You can long press an app icon to drag it and change its position.
+
+The default selection of apps is alright, with a media player for music and videos that you've imported on the tablet, a file manager that's decently designed, a very basic calendar,  as well as a clock, voice memo and calculator app, plus a basic photo viewer.
+Apart from that, you get chromium as the default browser, Konsole, the KDE terminal app, a settings app, and the JingOS Store.
+
+In terms of settings, it's pretty barebones: you have the absolute essentials, like airplane mode, wifi and bluetooth, and securing the device with your password.
+
+Generally, there's a lack of responsiveness when doing anything. You get the feeling that the tablet doesn't have hardware acceleration yet. When scrolling, you get screen tearing, and rotating the tablet doesn't do anything. No portrait mode.
+
+The battery life is pretty poor at the moment.
+
+
+
+The app store is barren for now. Out of all these apps, I'd say only WPS office looks right and optimized for a tablet. The rest are desktop application, that have menubars, super small buttons and interfaces, and are generally unusable on that display, unless you use a mouse.
+
+To finish with this review, let's talk a bit about the accessories. The tablet is provided with a case that attaches magnetically, and allows you to protect its front and back, and also use it at various angles.
+
+
+It also has a little tab on the side that allows you to magnetically attach the pencil, included with all JingPads.
+
+You can also get a keyboard attachment, that makes use of the pogo pins on the back. It's a very rigid keyboard, but as with all keyboards made for an 11 inch screen, the keys are very small, and typing comfortably on this will take time.
+
+Finally, you get the JingPad pencil, which is a stylus that supports multiple pressure levels and can be used to navigate the operating system and apps.
+
+
+
+So, this pencil is precise. Really precise, but the latency is definitely noticeable, it's far from what people might have been used to on Samsung or Apple devices, or even Surface tablets.
+

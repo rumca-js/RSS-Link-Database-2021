@@ -1,0 +1,25 @@
+# Source:Louis Rossman, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCl2mFZoRqjw_ELax4Yisf6w, language:en-US
+
+## A bike ride, and walkthrough of a protest in NYC
+ - [https://www.youtube.com/watch?v=tyCxEhOwg-g](https://www.youtube.com/watch?v=tyCxEhOwg-g)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCl2mFZoRqjw_ELax4Yisf6w
+ - date published: 2021-08-09 00:00:00+00:00
+
+https://tinyurl.com/rossmatrix
+00:00 - Bike ride
+25:04 - Protest
+32:25 - Back to bike ride
+
+Stuff I recorded this with:
+🔵 DJI Action 4K: https://amzn.to/3aI5dqa
+🔵 DPA 4066: https://bit.ly/dpa4065 (my favorite mic)
+🔵 Zoom H1n: https://amzn.to/2Y44HwF (this works amazingly well)
+
+## Accepting the premise of #$%& on civil liberties - not anymore.
+ - [https://www.youtube.com/watch?v=7aY6knptpiI](https://www.youtube.com/watch?v=7aY6knptpiI)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCl2mFZoRqjw_ELax4Yisf6w
+ - date published: 2021-08-09 00:00:00+00:00
+
+https://tinyurl.com/rossmatrix
+https://youtu.be/9ZZ5erGSKgs
+

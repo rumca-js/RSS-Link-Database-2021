@@ -1,0 +1,67 @@
+# Source:Daniel Greene, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCw--xPGVVxYzRsWyV1nFqgg, language:en-US
+
+## Iron Gold/Hyperion - REVIEW
+ - [https://www.youtube.com/watch?v=s-AcankNVRY](https://www.youtube.com/watch?v=s-AcankNVRY)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCw--xPGVVxYzRsWyV1nFqgg
+ - date published: 2021-07-15 00:00:00+00:00
+
+My reviews for Hyperion by Dan Simmons and Iron Gold by Pierce Brown. 
+Hyperion: https://amzn.to/2VHbZsW 
+Iron Gold: https://amzn.to/3ejr7TI 
+
+BREACH OF PEACE LINKS: 
+Amazon: https://amzn.to/3kHsyNJ (physical/ebook)
+Audible: https://www.audible.com/pd/B08Z8L7D5Q/?source_code=AUDFPWS0223189MWT-BK-ACX0-245468&ref=acx_bty_BK_ACX0_245468_rh_us
+B&N: https://tinyurl.com/3df3c2p4 (physical/ebook)
+Book Depository: https://tinyurl.com/2hds7euy (physical)
+Google: https://tinyurl.com/abkh6mn6 (ebook)
+Apple: https://tinyurl.com/rc994r8k (ebook)
+Kobo: https://www.kobo.com/us/en/ebook/breach-of-peace-1 (ebook)
+
+Merch: https://teespring.com/stores/fantasy-news-2
+Patreon: https://www.patreon.com/DanielBGreene
+Discord Server: https://discord.gg/xUzhVv4
+Twitter: https://twitter.com/DanielBGreene?lang=en
+Twitch: https://www.twitch.tv/fantasynews
+Instagram: https://www.instagram.com/dgreene101/
+Subreddit: https://www.reddit.com/r/danielgreene 
+Podcast: https://afictionalconversation.podbean.com/
+
+Equipment: 
+Camera: https://amzn.to/3siqgHv 
+Lense: https://amzn.to/3ugGxhQ 
+Lighting: https://amzn.to/3aI3brK 
+Microphone: https://amzn.to/3pCGtWg 
+Tripod: https://amzn.to/3kd9yq1
+
+## One Piece - (East Blue to G8) TIER LIST!
+ - [https://www.youtube.com/watch?v=etTSl9ECKiI](https://www.youtube.com/watch?v=etTSl9ECKiI)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCw--xPGVVxYzRsWyV1nFqgg
+ - date published: 2021-07-14 00:00:00+00:00
+
+My tier list for one piece so far! #OnePiece
+BREACH OF PEACE LINKS: 
+Amazon: https://amzn.to/3kHsyNJ (physical/ebook)
+Audible: https://www.audible.com/pd/B08Z8L7D5Q/?source_code=AUDFPWS0223189MWT-BK-ACX0-245468&ref=acx_bty_BK_ACX0_245468_rh_us
+B&N: https://tinyurl.com/3df3c2p4 (physical/ebook)
+Book Depository: https://tinyurl.com/2hds7euy (physical)
+Google: https://tinyurl.com/abkh6mn6 (ebook)
+Apple: https://tinyurl.com/rc994r8k (ebook)
+Kobo: https://www.kobo.com/us/en/ebook/breach-of-peace-1 (ebook)
+
+Merch: https://teespring.com/stores/fantasy-news-2
+Patreon: https://www.patreon.com/DanielBGreene
+Discord Server: https://discord.gg/xUzhVv4
+Twitter: https://twitter.com/DanielBGreene?lang=en
+Twitch: https://www.twitch.tv/fantasynews
+Instagram: https://www.instagram.com/dgreene101/
+Subreddit: https://www.reddit.com/r/danielgreene 
+Podcast: https://afictionalconversation.podbean.com/
+
+Equipment: 
+Camera: https://amzn.to/3siqgHv 
+Lense: https://amzn.to/3ugGxhQ 
+Lighting: https://amzn.to/3aI3brK 
+Microphone: https://amzn.to/3pCGtWg 
+Tripod: https://amzn.to/3kd9yq1
+

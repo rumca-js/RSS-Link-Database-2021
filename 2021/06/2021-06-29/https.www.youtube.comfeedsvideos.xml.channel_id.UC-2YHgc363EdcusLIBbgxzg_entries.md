@@ -1,0 +1,53 @@
+# Source:Joe Scott, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC-2YHgc363EdcusLIBbgxzg, language:en-US
+
+## The Bhopal Gas Tragedy: The Worst Industrial Accident Of All Time | Answers With Joe
+ - [https://www.youtube.com/watch?v=pwNrLtU2x2w](https://www.youtube.com/watch?v=pwNrLtU2x2w)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC-2YHgc363EdcusLIBbgxzg
+ - date published: 2021-06-29 00:00:00+00:00
+
+Get 3 months of ExpressVPN for free when you sign up at http://www.expressvpn.com/joescott
+On December 2nd, 1984 the city of Bhopal India suffered a gas leak from the Union Carbide plant that killed tens of thousands of people and is still crippling the local population more than 35 years later. It's a story of economic inequality, corporate negligence, and human resilience. 
+
+Watch this video ad-free on Nebula: https://nebula.tv/videos/joe-scott-the-bhopal-gas-tragedy-the-worst-industrial-accident-of-all-time
+
+
+Want to support the channel? Here's how:
+
+Patreon: http://www.patreon.com/answerswithjoe
+Channel Memberships: https://www.youtube.com/channel/UC-2YHgc363EdcusLIBbgxzg/join
+T-Shirts & Merch: http://www.answerswithjoe.com/store
+
+Interested in getting a Tesla? Use my referral link and get discounts and perks:
+https://ts.la/joe74700
+
+Follow me at all my places!
+Instagram: https://instagram.com/answerswithjoe
+TikTok: https://www.tiktok.com/@answerswithjoe
+Facebook: http://www.facebook.com/answerswithjoe
+Twitter: https://www.twitter.com/answerswithjoe
+
+LINKS LINKS LINKS:
+
+https://www.bhopal.net/what-happened/setting-the-stage-for-tragedy-1969-1984/1969-1979-union-carbide-enters-bhopal/
+
+https://www.hindustantimes.com/bhopal/bhopal-a-growing-economy-stalled-by-gas-tragedy/story-s11wBF1ELWIXSnV2sFQcgL.html 
+
+https://www.missouribotanicalgarden.org/gardens-gardening/your-garden/help-for-the-home-gardener/advice-tips-resources/pests-and-problems/pesticides/carbaryl-sevin.aspx
+https://www.news24.com/health24/Lifestyle/Pet-Health/News/Temik-killer-on-the-loose-20120721
+
+https://www.washingtonpost.com/archive/politics/1984/12/11/bhopal-journalist-administrator-questioned-safety-of-pesticide-plant/b3f3731a-59a9-48ec-9cdc-90e3241edd63/
+
+https://www.news18.com/videos/india/bhopal-gas-tragedy-8-730400.html
+
+https://www.downtoearth.org.in/dte-infographics/Bhopal_Gas_Disaster/index.htm
+
+https://www.bhopal.net/what-happened/that-night-december-3-1984/reliving-that-night/
+
+https://www.bhopal.net/what-happened/that-night-december-3-1984/the-death-toll/
+
+https://www.theweek.in/news/india/2020/12/02/local-studies-international-research-evidence-to-long-term-health-impact-bhopal-gas-tragedy.html
+
+https://www.sundayguardianlive.com/news/scribe-alerted-bhopal-gas-leak-dies-covid
+
+https://www.freepressjournal.in/bhopal/bhopal-gas-tragedy-36-years-later-convicts-still-out-on-bail
+
