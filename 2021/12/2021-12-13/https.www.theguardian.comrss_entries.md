@@ -1,9 +1,0 @@
-# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
-
-## Get your booster and wear a mask – how to prepare for a safe Christmas
- - [https://www.theguardian.com/all-in-all-together/2021/dec/13/from-booster-jabs-and-masks-to-fresh-air-how-we-can-prepare-for-a-safe-christmas](https://www.theguardian.com/all-in-all-together/2021/dec/13/from-booster-jabs-and-masks-to-fresh-air-how-we-can-prepare-for-a-safe-christmas)
- - RSS feed: https://www.theguardian.com/rss
- - date published: 2021-12-13 15:39:17+00:00
-
-<p>With the festive season under way, it’s vitally important to take steps to protect ourselves as well as friends and family from Covid-19</p><p>After a long year for many of us, Christmas is at last in sight – along with the chance to catch up with loved ones. Unfortunately, the holidays also mean an increased risk of spreading Covid-19. Over the next few weeks, more of us could well be mixing socially as well as travelling to visit friends and family.</p><p>Despite <a href="https://www.theguardian.com/world/2021/dec/08/what-new-covid-restrictions-might-be-imminent-in-england-omicron">Plan B</a> advising everyone who can work from home to do so, that face masks must be worn in some public indoor venues, and the NHS Covid pass becoming mandatory for entry into venues where large crowds gather; the arrival of the Omicron variant means it’s still likely that cases will rise over the coming weeks. So as we attend more events, such as Christmas parties or religious services, it’s important everyone takes action to limit the spread of transmission by adopting Covid-safe behaviours.</p> <a href="https://www.theguardian.com/all-in-all-together/2021/dec/13/from-booster-jabs-and-masks-to-fresh-air-how-we-can-prepare-for-a-safe-christmas">Continue reading...</a>
-

@@ -1,7 +1,0 @@
-## Google, Apple remove Navalny app from stores as Russian elections begin | Reuters
- - [https://www.reuters.com/world/europe/google-apple-remove-navalny-app-stores-russian-elections-begin-2021-09-17/](https://www.reuters.com/world/europe/google-apple-remove-navalny-app-stores-russian-elections-begin-2021-09-17/)
- - RSS feed: https://www.reuters.com
- - date published: 2021-09-18 07:24:06.126789+00:00
-
-Alphabet's Google and Apple have removed jailed Kremlin critic Alexei Navalny's tactical voting app from their stores, his team said on Friday, after Russia accused the U.S. tech firms of meddling in its internal affairs.
-

@@ -1,9 +1,0 @@
-# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
-
-## ‘A will can be written on the inside of an eggshell’: 12 things you only know if you’re a law student
- - [https://www.theguardian.com/a-new-career-with-the-university-of-law/2021/aug/27/a-will-can-be-written-on-the-inside-of-an-eggshell-12-things-you-only-know-if-youre-a-law-student](https://www.theguardian.com/a-new-career-with-the-university-of-law/2021/aug/27/a-will-can-be-written-on-the-inside-of-an-eggshell-12-things-you-only-know-if-youre-a-law-student)
- - RSS feed: https://www.theguardian.com/rss
- - date published: 2021-08-27 15:37:08+00:00
-
-<p>From learning the difference between academic and practical law, to discovering inaccuracies in TV dramas, law students and graduates share things they found out during their studies</p><p>As any law student can attest, studying law isn’t exactly like Legally Blonde’s Elle Woods made us believe (nor Suits or Ally McBeal, for that matter). But it is a brilliantly unique experience – as these current and former students are only too happy to tell you …</p><p><strong>1. TV dramas aren’t accurate<br /></strong>“Once you’ve studied law, watching legal dramas on TV will become painful. You’ll be unable to stop yourself from pointing out inaccuracies, much to the annoyance of family and friends (‘No! They don’t use gavels in English courts!’). You don’t magically emerge the other side of your degree as a solicitor or barrister like TV suggests, either. After finishing sixth form or college, these career paths usually take at least six years before qualification, whichever route you take. It’s a huge commitment.”<br /><em>Bryony, paralegal at Aaron &amp; Partners</em></p> <a href="https://www.theguardian.com/a-new-career-with-the-university-of-law/2021/aug/27/a-will-can-be-written-on-the-inside-of-an-eggshell-12-things-you-only-know-if-youre-a-law-student">Continue reading...</a>
-

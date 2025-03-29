@@ -1,7 +1,0 @@
-## What I learned from an unlikely friendship with an anti-masker | Life and style | The Guardian
- - [https://www.theguardian.com/lifeandstyle/2021/aug/19/anti-masker-unlikely-friendship](https://www.theguardian.com/lifeandstyle/2021/aug/19/anti-masker-unlikely-friendship)
- - RSS feed: https://www.theguardian.com
- - date published: 2021-08-27 10:09:57.607972+00:00
-
-Frank’s views were disturbing, a brazen assertion of white privilege. But with our fates more clearly tied together than ever, I needed to understand him
-

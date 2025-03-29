@@ -1,9 +1,0 @@
-# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
-
-## My Brother’s Keeper: a former Guantánamo detainee's unlikely friendship with his guard
- - [https://www.theguardian.com/world/ng-interactive/2021/feb/23/my-brothers-keeper-a-former-guantanamo-detainee-his-guard-and-their-unlikely-friendship](https://www.theguardian.com/world/ng-interactive/2021/feb/23/my-brothers-keeper-a-former-guantanamo-detainee-his-guard-and-their-unlikely-friendship)
- - RSS feed: https://www.theguardian.com/rss
- - date published: 2021-02-23 10:00:26+00:00
-
-<p><strong>Mohamedou Ould Salahi </strong>and one of his former guards, Steve Wood, reunite in Mauritania 13 years after last seeing each other, rekindling an unlikely relationship that profoundly changed their lives.</p><p>Mohamedou was a prisoner at Guantánamo Bay for 14 years. During his incarceration he was subjected to torture and solitary confinement, but never charged with a crime. His memoir, <a href="https://www.theguardian.com/books/2015/feb/13/guantanamo-diary-mohamedou-ould-slahi-review-global-war-terror-witness">Guantánamo Diary</a>, became an international bestseller and was adapted into the film, <a href="https://www.theguardian.com/film/2021/jan/03/guantanamo-prisoner-the-mauritanian-mohamedou-ould-slahi">The Mauritanian</a>, starring Tahar Rahim and Jodie Foster.</p><p>My Brother’s Keeper is BAFTA longlisted for British Short Film 2021.<br /></p><p><a href="https://www.theguardian.com/world/2015/jan/16/-sp-guantanamo-diary-flight-saw-cockpit-saw-guards-saw-ghosts-of-fellow-detainees">Read exclusive extracts</a> and <a href="https://www.theguardian.com/books/audio/2015/jan/24/guantanamo-diary-benedict-cumberbatch-podcast">listen to audio readings</a> from Mohamedou’s book on the Guardian.</p> <a href="https://www.theguardian.com/world/ng-interactive/2021/feb/23/my-brothers-keeper-a-former-guantanamo-detainee-his-guard-and-their-unlikely-friendship">Continue reading...</a>
-

@@ -1,7 +1,0 @@
-## Germany wants smartphone makers to offer 7 years of software updates
- - [https://www.xda-developers.com/germany-smartphone-makers-7-years-software-updates/](https://www.xda-developers.com/germany-smartphone-makers-7-years-software-updates/)
- - RSS feed: https://www.xda-developers.com
- - date published: 2021-09-07 16:21:39.084311+00:00
-
-Germany is currently mulling over a new law that would force smartphone OEMs to deliver seven years of software updates for their devices.
-

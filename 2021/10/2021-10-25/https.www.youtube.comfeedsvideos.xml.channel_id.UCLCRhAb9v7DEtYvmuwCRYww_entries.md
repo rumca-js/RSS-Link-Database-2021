@@ -1,7 +1,0 @@
-## Why Didn't I Know This Before! Confucius Quotes That Still Ring True
- - [https://www.youtube.com/watch?v=7xjFuPschD8](https://www.youtube.com/watch?v=7xjFuPschD8)
- - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCLCRhAb9v7DEtYvmuwCRYww
- - date published: 2021-10-25 00:00:00+00:00
-
-Confucius was one of the first philosophers and sages of the East known to history. He was the first to systematize the chronicles of all the scattered Chinese principalities. In addition, Confucius was famous for his wisdom, as a result of which he was immortalized. Listen to these Quotes and Aphorisms of Confucius and Write in the comments which one you like the most.
-
